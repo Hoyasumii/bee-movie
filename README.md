@@ -2096,4 +2096,4 @@ They don't know what to do. Laying out, sleeping in.
 
 I heard your Uncle Carl was on his way to San Antonio with a cricket.
 
-At least we
+At least we 
