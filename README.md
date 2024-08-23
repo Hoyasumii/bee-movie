@@ -2714,4 +2714,4 @@ Sure is.
 
 Between you and me,
 
-I was dying to get out of that 
+I was dying to get out of that o
