@@ -890,4 +890,4 @@ You all right, ma'am?
 
 Oh, yeah. Fine.
 
-Just having two cups of
+Just having two cups of 
