@@ -1136,4 +1136,4 @@ So you have to watch your temper.
 
 Very carefully.
 
-You kick a wall, take a walk, write an angry letter an
+You kick a wall, take a walk, write an angry letter and
