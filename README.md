@@ -676,4 +676,4 @@ There's the sun. Maybe that's a way out.
 
 I don't remember the sun having a big 75 on it.
 
-I predicted global warm
+I predicted global warmi
