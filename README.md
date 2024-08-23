@@ -1969,3 +1969,5 @@ I move for a complete dismissal of this entire case!
 Mr. Flayman, I'm afraid I'm going to have to consider Mr. Montgomery's motion.
 
 But you can't! We have a terrific case.
+
+W
