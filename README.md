@@ -1670,4 +1670,4 @@ I see from your resume that you're devilishly handsome with a churning inner tur
 
 I enjoy what I do. Is that a crime?
 
-Not yet it isn't. 
+Not yet it isn't. B
