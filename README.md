@@ -1150,4 +1150,4 @@ He's not bothering anybody.
 
 Get out of here, you creep!
 
-What was that? A Pic 'N' Save ci
+What was that? A Pic 'N' Save cir
