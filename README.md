@@ -488,4 +488,4 @@ Black and yellow!
 
 Hello!
 
-You read
+You ready
