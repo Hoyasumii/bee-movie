@@ -36,4 +36,4 @@ Hey, Adam.
 Hey, Barry.
 Is that fuzz gel?
 A little. Special day, graduation.
-Never thought I'd m
+Never thought I'd ma
