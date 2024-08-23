@@ -1568,4 +1568,4 @@ You think billion-dollar multinational food companies have good lawyers?
 
 Everybody needs to stay behind the barricade.
 
-What's 
+What's t
