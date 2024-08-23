@@ -2240,4 +2240,4 @@ All right, they have the roses, the roses have the pollen.
 
 I know every bee, plant and flower bud in this park.
 
-All we go
+All we got
