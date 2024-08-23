@@ -1088,4 +1088,4 @@ Because you don't listen!
 
 I'm not listening to this.
 
-Sorry, I'v
+Sorry, I've
