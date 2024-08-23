@@ -2372,4 +2372,4 @@ No!
 
 No one's flying the plane!
 
-This is JFK control 
+This is JFK control t
