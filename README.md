@@ -2206,4 +2206,4 @@ Roses are flowers!
 
 Yes, they are.
 
-Flowers, bees, pol
+Flowers, bees, poll
