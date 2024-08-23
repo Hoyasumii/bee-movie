@@ -1194,4 +1194,4 @@ It's just honey, Barry.
 
 Just what?!
 
-Bees don't know about this! This is steali
+Bees don't know about this! This is stealin
