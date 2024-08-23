@@ -2088,4 +2088,4 @@ Oh, yeah?
 
 What's going on? Where is everybody?
 
-Are they out celebrating
+Are they out celebrating?
