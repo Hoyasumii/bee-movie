@@ -2474,4 +2474,4 @@ And now we're not!
 
 So it turns out I cannot fly a plane.
 
-All of yo
+All of you
