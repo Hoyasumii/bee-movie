@@ -1322,4 +1322,4 @@ What if you get in trouble?
 
 You a mosquito, you in trouble. Nobody likes us. They just smack. See a mosquito, smack, smack!
 
-At least you're out in the world. You must meet g
+At least you're out in the world. You must meet gi
