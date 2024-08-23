@@ -684,4 +684,4 @@ Stand back. These are winter boots.
 
 Wait!
 
-Don't kill him
+Don't kill him!
