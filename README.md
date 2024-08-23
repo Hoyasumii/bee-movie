@@ -554,4 +554,4 @@ That's pollen power. More pollen, more flowers, more nectar, more honey for us.
 
 Cool.
 
-I'm picking up a lot of bright yellow, Cou
+I'm picking up a lot of bright yellow, Coul
