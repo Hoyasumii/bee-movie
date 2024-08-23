@@ -2234,4 +2234,4 @@ I thought maybe you were remodeling.
 
 But I have another idea, and it's greater than my previous ideas combined.
 
-I don't want to hear i
+I don't want to hear it
