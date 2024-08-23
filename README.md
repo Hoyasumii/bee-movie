@@ -1896,4 +1896,4 @@ Yeah.
 
 I... I blew the whole case, didn't I?
 
-It doesn't matter. Wh
+It doesn't matter. Wha
