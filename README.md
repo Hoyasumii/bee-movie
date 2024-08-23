@@ -1172,4 +1172,4 @@ I never heard of him.
 
 Why is this here?
 
-For people. We eat i
+For people. We eat it
