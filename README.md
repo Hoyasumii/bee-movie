@@ -2128,4 +2128,4 @@ Oh, no. Oh, my.
 
 They're all wilting.
 
-Doesn't look very good, doe
+Doesn't look very good, does
