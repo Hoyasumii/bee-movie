@@ -768,4 +768,4 @@ That was a little weird. I'm talking with a bee.
 
 Yeah.
 
-I'm talking to a bee. And the bee is talki
+I'm talking to a bee. And the bee is talkin
