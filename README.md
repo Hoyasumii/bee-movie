@@ -2556,4 +2556,4 @@ Bring the nose down.
 
 Thinking bee!
 
-Thinking bee! T
+Thinking bee! Th
