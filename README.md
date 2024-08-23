@@ -1282,4 +1282,4 @@ How much do you people need to see?!
 
 Open your eyes!
 
-Stick your hea
+Stick your head
