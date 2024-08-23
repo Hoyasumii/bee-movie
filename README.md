@@ -1472,4 +1472,4 @@ You know, they have a Larry King in the human world too.
 
 It's a common name. Next week...
 
-He looks like you and has a show and suspende
+He looks like you and has a show and suspender
