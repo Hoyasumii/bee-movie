@@ -2378,4 +2378,4 @@ This is Vanessa Bloome. I'm a florist from New York.
 
 Where's the pilot?
 
-He's unconscious, and so is the copi
+He's unconscious, and so is the copil
