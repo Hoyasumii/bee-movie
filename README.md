@@ -51,3 +51,4 @@ Don't waste it on a squirrel.
 Such a hothead.
 I guess he could have just gotten out of the way.
 I love this incorporating an amusement park into our day.
+T
