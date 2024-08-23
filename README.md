@@ -528,4 +528,4 @@ Flowers!
 
 This is Blue Leader, We have roses visual.
 
-Bring it around 30 degrees and hol
+Bring it around 30 degrees and hold
