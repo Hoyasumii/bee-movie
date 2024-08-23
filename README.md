@@ -1348,4 +1348,4 @@ They are pinheads!
 
 Pinhead.
 
-Check out the n
+Check out the ne
