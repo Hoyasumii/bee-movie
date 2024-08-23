@@ -2328,4 +2328,4 @@ I think this is gonna work.
 
 It's got to work.
 
-Attention, passengers, this is Captain Scott. We have a bit of bad weather in New York. It looks like we'll experi
+Attention, passengers, this is Captain Scott. We have a bit of bad weather in New York. It looks like we'll experie
