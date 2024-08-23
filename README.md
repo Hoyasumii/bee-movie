@@ -23,4 +23,4 @@ Looking sharp.
 Use the stairs, Your father paid good money for those.
 Sorry. I'm excited.
 Here's the graduate.
-We're very proud of you, s
+We're very proud of you, so
