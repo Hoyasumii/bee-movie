@@ -796,4 +796,4 @@ I don't know. I mean... I don't know. Coffee?
 
 I don't want to put you out.
 
-It's no trouble. It tak
+It's no trouble. It take
