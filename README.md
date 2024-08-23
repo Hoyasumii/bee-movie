@@ -910,4 +910,4 @@ Thanks!
 
 Yeah.
 
-All right. W
+All right. We
