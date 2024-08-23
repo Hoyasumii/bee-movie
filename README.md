@@ -2548,4 +2548,4 @@ Wait a minute. I think I'm feeling something.
 
 What?
 
-I don't know. It's str
+I don't know. It's stro
