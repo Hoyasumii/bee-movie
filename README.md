@@ -1690,4 +1690,4 @@ Say it!
 
 Mr. Liotta, please sit down!
 
-I thin
+I think
