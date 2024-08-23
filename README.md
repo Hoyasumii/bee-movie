@@ -186,4 +186,4 @@ I'm so proud.
 We're starting work today!
 Today's the day.
 Come on! All the good jobs will be gone.
-Yeah, right
+Yeah, right.
