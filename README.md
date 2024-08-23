@@ -161,4 +161,4 @@ Hey, Honex!
 Dad, you surprised me.
 You decide what you're interested in?
 Well, there's a lot of choices.
-But you only get on
+But you only get one
