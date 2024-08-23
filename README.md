@@ -1506,4 +1506,4 @@ Hello, bee.
 
 This is Ken.
 
-Yeah, I remem
+Yeah, I rememb
