@@ -1442,4 +1442,4 @@ Hive at Five, The Hive's only full-hour action news source.
 
 No more bee beards!
 
-With Bob Bumble at the anchor desk. Weather with Storm Stinger. Sports with Buzz Larvi. And Jean
+With Bob Bumble at the anchor desk. Weather with Storm Stinger. Sports with Buzz Larvi. And Jeane
