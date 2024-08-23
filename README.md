@@ -2028,4 +2028,4 @@ What if Montgomery's right?
 
 What do you mean?
 
-We've been living the bee way a long time, 27 million yea
+We've been living the bee way a long time, 27 million year
