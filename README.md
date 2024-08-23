@@ -2450,4 +2450,4 @@ That's why I want to get bees back to working together. That's the bee way! We'r
 
 We get behind a fellow.
 
-Black and yell
+Black and yello
