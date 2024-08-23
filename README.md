@@ -1718,4 +1718,4 @@ Oh, that was lucky.
 
 There's a little left. I could heat it up.
 
-Yeah, he
+Yeah, hea
