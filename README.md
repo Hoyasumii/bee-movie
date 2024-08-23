@@ -2426,4 +2426,4 @@ They've done enough damage.
 
 But isn't he your only hope?
 
-Technically, a bee s
+Technically, a bee sh
