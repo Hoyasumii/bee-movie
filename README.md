@@ -1506,4 +1506,4 @@ Hello, bee.
 
 This is Ken.
 
-Yeah, I remember you. Timberland, size ten and a half. Vibram sole, I believ
+Yeah, I remember you. Timberland, size ten and a half. Vibram sole, I believe
