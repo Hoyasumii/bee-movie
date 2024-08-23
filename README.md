@@ -2540,4 +2540,4 @@ Thinking bee.
 
 Thinking bee.
 
-Think
+Thinki
