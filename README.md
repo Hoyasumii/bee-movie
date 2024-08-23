@@ -58,4 +58,4 @@ We are!
 Bee-men.
 Amen!
 Hallelujah!
-Students, faculty, distingui
+Students, faculty, distinguis
