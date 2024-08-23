@@ -558,4 +558,4 @@ I'm picking up a lot of bright yellow, Could be daisies, Don't we need those?
 
 Copy that visual.
 
-Wait. One of these flowers seems to be o
+Wait. One of these flowers seems to be on
