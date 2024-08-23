@@ -1688,4 +1688,4 @@ Order! Order, I say!
 
 Say it!
 
-Mr. Liotta, plea
+Mr. Liotta, pleas
