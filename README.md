@@ -2006,4 +2006,4 @@ I knew you could do it! High-five!
 
 Sorry.
 
-I'm OK! You know wh
+I'm OK! You know wha
