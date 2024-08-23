@@ -2044,4 +2044,4 @@ Wait for my signal. Take him out.
 
 He'll have nauseous for a few hours, then he'll be fine.
 
-And we will no longer tolerate bee-neg
+And we will no longer tolerate bee-nega
