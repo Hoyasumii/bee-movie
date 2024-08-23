@@ -1938,4 +1938,4 @@ Right. Bees don't smoke.
 
 Bees don't smoke!
 
-But some bees are s
+But some bees are sm
