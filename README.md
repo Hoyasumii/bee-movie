@@ -1730,4 +1730,4 @@ You think I don't see what you're doing?
 
 I know how hard it is to find the right job. We have that in common.
 
-Do 
+Do w
