@@ -496,4 +496,4 @@ Wind, check.
 
 Antennae, check.
 
-Nectar pack, c
+Nectar pack, ch
