@@ -510,4 +510,4 @@ let's move it out!
 
 Pound those petunias, you striped stem-suckers!
 
-All of you, drain 
+All of you, drain t
