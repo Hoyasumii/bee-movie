@@ -972,4 +972,4 @@ No, no, no, not a wasp.
 
 Spider?
 
-I'm not attracted to sp
+I'm not attracted to spi
