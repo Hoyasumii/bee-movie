@@ -1160,4 +1160,4 @@ You've really got that down to a science.
 
 I lost a cousin to Italian Vogue.
 
-I'll be
+I'll bet
