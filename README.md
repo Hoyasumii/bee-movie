@@ -1418,4 +1418,4 @@ Dad, I remember you coming home so overworked
 
 your hands were still stirring. You couldn't stop.
 
-I rememb
+I remembe
