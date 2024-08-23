@@ -39,4 +39,4 @@ A little. Special day, graduation.
 Never thought I'd make it.
 Three days grade school, three days high school.
 Those were awkward.
-Three days college. I'm
+Three days college. I'm 
