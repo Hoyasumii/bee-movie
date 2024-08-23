@@ -2310,4 +2310,4 @@ Yes.
 
 Has it been in your possession the entire time?
 
-Would you remove
+Would you remove 
