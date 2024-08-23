@@ -1248,4 +1248,4 @@ Just keep still.
 
 What? You're not dead?
 
-Do I look dea
+Do I look dead
