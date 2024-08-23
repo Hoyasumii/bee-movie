@@ -12,4 +12,4 @@ Ooh, black and yellow!
 Let's shake it up a little.
 Barry! Breakfast is ready!
 Coming!
-Hang on a secon
+Hang on a second
