@@ -824,4 +824,4 @@ These stripes don't help.
 
 You look great!
 
-I don't kn
+I don't kno
