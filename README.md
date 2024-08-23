@@ -2590,4 +2590,4 @@ That flower.
 
 I'm aiming at the flower!
 
-That's a fat guy in a flo
+That's a fat guy in a flow
