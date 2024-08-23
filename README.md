@@ -1306,4 +1306,4 @@ Whassup, bee boy?
 
 Hey, Blood.
 
-Just a row of hone
+Just a row of honey
