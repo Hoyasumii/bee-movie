@@ -1272,4 +1272,4 @@ A wiper! Triple blade!
 
 Triple blade?
 
-Jump on! It'
+Jump on! It's
