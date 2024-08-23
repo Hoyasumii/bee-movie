@@ -1036,4 +1036,4 @@ Thinking bee.
 
 Thinking bee.
 
-Thin
+Think
