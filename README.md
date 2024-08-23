@@ -910,4 +910,4 @@ Thanks!
 
 Yeah.
 
-All right. Well, then... I guess I'l
+All right. Well, then... I guess I'll
