@@ -2388,4 +2388,4 @@ Who's that?
 
 Barry Benson.
 
-From the honey trial?! Oh, great
+From the honey trial?! Oh, great.
