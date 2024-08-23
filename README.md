@@ -16,4 +16,4 @@ Hang on a second.
 Hello?
 Barry?
 Adam?
-Can y
+Can yo
