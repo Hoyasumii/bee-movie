@@ -191,4 +191,4 @@ Pollen counting, stunt bee, pouring, stirrer, front desk, hair removal...
 Is it still available?
 Hang on. Two left!
 One of them's yours! Congratulations!
-Step to the sid
+Step to the side
