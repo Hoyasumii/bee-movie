@@ -2222,4 +2222,4 @@ Barry!
 
 OK, I made a huge mistake.
 
-This is a tota
+This is a total
