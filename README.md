@@ -20,4 +20,4 @@ Can you believe this is happening?
 I can't.
 I'll pick you up.
 Looking sharp.
-Use the stairs, Your father paid go
+Use the stairs, Your father paid goo
