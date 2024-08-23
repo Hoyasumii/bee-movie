@@ -504,4 +504,4 @@ Stinger, check.
 
 Scared out of my shorts, check.
 
-OK, lad
+OK, ladi
