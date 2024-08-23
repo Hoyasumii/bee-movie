@@ -1150,4 +1150,4 @@ He's not bothering anybody.
 
 Get out of here, you creep!
 
-Wha
+What
