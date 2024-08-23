@@ -2524,4 +2524,4 @@ The Pollen Jocks!
 
 They do get behind a fellow.
 
-Black and yell
+Black and yello
