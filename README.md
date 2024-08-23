@@ -840,4 +840,4 @@ The wedding is on.
 
 And he says, "Watermelon?
 
-I thought you said G
+I thought you said Gu
