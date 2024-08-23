@@ -1741,3 +1741,5 @@ Ken, I let Barry borrow your razor for his fuzz. I hope that was all right.
 I'm going to drain the old stinger.
 
 Yeah, you do that.
+
+L
