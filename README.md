@@ -1076,4 +1076,4 @@ Watch this!
 
 Vanessa!
 
-We're stil
+We're still
