@@ -964,4 +964,4 @@ Well?
 
 Well, I met someone.
 
-You did? Was she B
+You did? Was she Be
