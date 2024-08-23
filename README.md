@@ -1518,4 +1518,4 @@ Bye-bye.
 
 Why is yogurt night so difficult?!
 
-You poor thing. You two have been at this fo
+You poor thing. You two have been at this for
