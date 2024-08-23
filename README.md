@@ -1350,4 +1350,4 @@ Pinhead.
 
 Check out the new smoker.
 
-Oh, sweet. That's t
+Oh, sweet. That's th
