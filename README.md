@@ -102,4 +102,4 @@ Wow! That blew my mind!
 How can you say that?
 One job forever?
 That's an insane choice to have to make.
-I'm relieved. Now we only hav
+I'm relieved. Now we only have
