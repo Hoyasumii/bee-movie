@@ -1700,4 +1700,4 @@ Right. Well, here's to a great team.
 
 To a great team!
 
-W
+We
