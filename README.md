@@ -2256,4 +2256,4 @@ Across the nation!
 
 Tournament of Roses, Pasadena, California.
 
-They've got nothing bu
+They've got nothing but
