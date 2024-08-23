@@ -1414,4 +1414,4 @@ Barry, this is what you want to do with your life?
 
 I want to do it for all our lives. Nobody works harder than bees!
 
-Dad, I remember yo
+Dad, I remember you
