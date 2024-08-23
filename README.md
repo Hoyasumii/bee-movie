@@ -1934,4 +1934,4 @@ The smoke.
 
 Bees don't smoke.
 
-Right. Bees don't sm
+Right. Bees don't smo
