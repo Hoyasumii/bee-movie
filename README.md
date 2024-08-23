@@ -1872,4 +1872,4 @@ Adam, don't! It's what he wants!
 
 Oh, I'm hit!! Oh, lordy, I am hit!
 
-Order! Orde
+Order! Order
