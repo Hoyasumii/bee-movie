@@ -642,4 +642,4 @@ What are you doing?!
 
 Wow... the tension level out here is unbelievable.
 
-I gott
+I gotta
