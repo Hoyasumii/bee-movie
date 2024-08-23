@@ -966,4 +966,4 @@ Well, I met someone.
 
 You did? Was she Bee-ish?
 
-A was
+A wasp
