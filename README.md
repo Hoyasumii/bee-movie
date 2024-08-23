@@ -1662,4 +1662,4 @@ Have you ever been stung, Mr. Sting? Because I'm feeling a little stung, Sting. 
 
 That's not his real name?! You idiots!
 
-Mr. Liotta, first, belated congratul
+Mr. Liotta, first, belated congratula
