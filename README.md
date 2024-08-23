@@ -1706,4 +1706,4 @@ Ken!
 
 Hello.
 
-I didn't think you were c
+I didn't think you were co
