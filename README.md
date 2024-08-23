@@ -2148,4 +2148,4 @@ That's our whole SAT test right there.
 
 Take away produce, that affects the entire animal kingdom.
 
-And then, of course
+And then, of course.
