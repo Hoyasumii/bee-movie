@@ -848,4 +848,4 @@ Is that a bee joke?
 
 That's the kind of stuff we do.
 
-Yeah, diffe
+Yeah, differ
