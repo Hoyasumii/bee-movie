@@ -2178,4 +2178,4 @@ Where are you going?
 
 To the final Tournament of Roses parade in Pasadena.
 
-They've moved it to this weekend because all the
+They've moved it to this weekend because all the 
