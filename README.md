@@ -868,4 +868,4 @@ Really?
 
 My only interest is flowers.
 
-Our new queen was just elected with that same camp
+Our new queen was just elected with that same campa
