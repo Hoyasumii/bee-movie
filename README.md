@@ -830,4 +830,4 @@ Are you all right?
 
 No.
 
-He's making the tie in t
+He's making the tie in th
