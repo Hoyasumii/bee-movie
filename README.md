@@ -1886,4 +1886,4 @@ I will have order in this court. Order! Order, please!
 
 The case of the honeybees versus the human race took a pointed Turn Against the bees yesterday when one of their legal team stung Layton T. Montgomery.
 
-Hey, bu
+Hey, bud
