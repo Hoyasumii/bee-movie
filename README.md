@@ -1974,4 +1974,4 @@ Where is your proof?
 
 Where is the evidence?
 
-Show me the smoking g
+Show me the smoking gu
