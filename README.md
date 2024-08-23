@@ -1396,4 +1396,4 @@ He's been talking to humans.
 
 What? Talking to humans?!
 
-He has a human girlfriend. And 
+He has a human girlfriend. And t
