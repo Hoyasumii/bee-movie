@@ -46,4 +46,4 @@ Hear about Frankie?
 Yeah.
 You going to the funeral?
 No, I'm not going.
-Everybody knows, sting someone, you d
+Everybody knows, sting someone, you di
