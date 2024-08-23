@@ -926,4 +926,4 @@ He's all set to go.
 
 We may as well try it.
 
-OK, Dave, pull the ch
+OK, Dave, pull the chu
