@@ -1386,4 +1386,4 @@ This is worse than anything bears have done! I intend to do something.
 
 Oh, Barry, stop.
 
-Who told you humans are taking our honey? Th
+Who told you humans are taking our honey? Tha
