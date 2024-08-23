@@ -1054,4 +1054,4 @@ What life? You have no life!
 
 You have no job. You're barely a bee!
 
-Would it kill yo
+Would it kill you
