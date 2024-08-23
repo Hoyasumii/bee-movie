@@ -2174,4 +2174,4 @@ Vanessa?
 
 Vanessa? Why are you leaving?
 
-Where are you goin
+Where are you going
