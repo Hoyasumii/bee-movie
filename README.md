@@ -1270,4 +1270,4 @@ Oh, no!
 
 A wiper! Triple blade!
 
-Triple blade
+Triple blade?
