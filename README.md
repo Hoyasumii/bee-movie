@@ -2173,3 +2173,5 @@ I had to open my mouth and talk.
 Vanessa?
 
 Vanessa? Why are you leaving?
+
+W
