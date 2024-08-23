@@ -780,4 +780,4 @@ What?
 
 The talking thing.
 
-Same way you did, I guess. "Mam
+Same way you did, I guess. "Mama
