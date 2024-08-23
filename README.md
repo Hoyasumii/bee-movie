@@ -1594,4 +1594,4 @@ I'm kidding. Yes, Your Honor, we're ready to proceed.
 
 Mr. Montgomery, your opening statement, please.
 
-Ladi
+Ladie
