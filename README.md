@@ -1086,4 +1086,4 @@ Then why yell at me?
 
 Because you don't listen!
 
-I'm not listening t
+I'm not listening to
