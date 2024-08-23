@@ -2304,4 +2304,4 @@ Once at the airport, there's no stopping us.
 
 Stop! Security.
 
-You and yo
+You and you
