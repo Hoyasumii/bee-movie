@@ -1344,4 +1344,4 @@ What is this place?
 
 A bee's got a brain the size of a pinhead.
 
-They are pin
+They are pinh
