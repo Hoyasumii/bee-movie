@@ -144,4 +144,4 @@ Oh, my!
 I never thought I'd knock him out.
 What were you doing during this?
 Trying to alert the authorities.
-I can autograph th
+I can autograph tha
