@@ -730,4 +730,4 @@ Nah.
 
 What would I say?
 
-I could really get in trou
+I could really get in troub
