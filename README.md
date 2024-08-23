@@ -1430,4 +1430,4 @@ Sting them where it really hurts.
 
 In the face! The eye!
 
-That would hur
+That would hurt
