@@ -1422,4 +1422,4 @@ I remember that.
 
 What right do they have to our honey?
 
-We live on two cups a year. They put it in lip balm for no reason whatsoeve
+We live on two cups a year. They put it in lip balm for no reason whatsoever
