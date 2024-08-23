@@ -846,4 +846,4 @@ Why would I marry a watermelon?"
 
 Is that a bee joke?
 
-That's the kin
+That's the kind
