@@ -1154,4 +1154,4 @@ What was that? A Pic 'N' Save circular?
 
 Yeah, it was. How did you know?
 
-It felt like about 10 pages. Seventy-five is pre
+It felt like about 10 pages. Seventy-five is pret
