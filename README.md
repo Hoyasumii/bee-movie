@@ -1580,4 +1580,4 @@ All rise! The Honorable Judge Bumbleton presiding.
 
 All right. Case number 4475,
 
-Superior Court of N
+Superior Court of Ne
