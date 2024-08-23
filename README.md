@@ -2716,4 +2716,4 @@ Between you and me,
 
 I was dying to get out of that office.
 
-You have got to start thinking be
+You have got to start thinking bee
