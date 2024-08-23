@@ -780,4 +780,4 @@ What?
 
 The talking thing.
 
-Same way you did, I gue
+Same way you did, I gues
