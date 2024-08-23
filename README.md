@@ -2596,4 +2596,4 @@ I mean the giant pulsating flower made of millions of bees!
 
 Pull forward. Nose down. Tail up.
 
-Rotat
+Rotate
