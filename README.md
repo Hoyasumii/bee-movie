@@ -572,4 +572,4 @@ I don't know, but I'm loving this color.
 
 It smells good.
 
-Not lik
+Not like
