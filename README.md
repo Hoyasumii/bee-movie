@@ -1552,4 +1552,4 @@ This lawsuit's a pretty big deal.
 
 I guess.
 
-You sure you want to g
+You sure you want to go
