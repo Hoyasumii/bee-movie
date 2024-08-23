@@ -1348,4 +1348,4 @@ They are pinheads!
 
 Pinhead.
 
-Check out th
+Check out the
