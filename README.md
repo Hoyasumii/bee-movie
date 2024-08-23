@@ -468,4 +468,4 @@ Thank you.
 
 OK.
 
-You got a rain advisory today, and as you all know, bees cann
+You got a rain advisory today, and as you all know, bees canno
