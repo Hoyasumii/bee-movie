@@ -1448,4 +1448,4 @@ Good evening. I'm Bob Bumble.
 
 And I'm Jeanette Ohung.
 
-A tri-county bee, Barry Benson, intends to sue the human race for
+A tri-county bee, Barry Benson, intends to sue the human race for 
