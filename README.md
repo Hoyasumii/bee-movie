@@ -2220,4 +2220,4 @@ Could you slow down?
 
 Barry!
 
-OK, I made a huge mis
+OK, I made a huge mist
