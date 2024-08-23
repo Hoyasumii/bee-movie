@@ -2484,4 +2484,4 @@ Don't have to yell.
 
 I'm not yelling! We're in a lot of trouble.
 
-It's very hard to concentrate with t
+It's very hard to concentrate with th
