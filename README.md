@@ -1914,4 +1914,4 @@ You think it was all a trap?
 
 Of course. I'm sorry. I flew us right into this.
 
-What were we thinking? Look at us. W
+What were we thinking? Look at us. We
