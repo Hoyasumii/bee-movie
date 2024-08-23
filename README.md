@@ -666,4 +666,4 @@ It's fantastic. It's got all my special skills, even my top-ten favorite movies.
 
 What's number one? Star Wars?
 
-Nah, I don't go for that... kind 
+Nah, I don't go for that... kind o
