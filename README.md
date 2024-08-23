@@ -1240,4 +1240,4 @@ Crazy person!
 
 What horrible thing has happened here?
 
-These faces, they never knew what hit them. And no
+These faces, they never knew what hit them. And now
