@@ -1076,4 +1076,4 @@ Watch this!
 
 Vanessa!
 
-We're still her
+We're still here
