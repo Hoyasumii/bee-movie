@@ -88,4 +88,4 @@ Here we have our latest advancement, the Krelman.
 What does that do?
 Catches that little strand of honey that hangs after you pour it.
 Saves us millions.
-Can anyone work on the Krelma
+Can anyone work on the Krelman
