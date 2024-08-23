@@ -1642,4 +1642,4 @@ They're very lovable creatures. Yogi Bear, Fozzie Bear, Build-A-Bear.
 
 You mean like this?
 
-Bears kill bees
+Bears kill bees!
