@@ -2708,4 +2708,4 @@ When will this nightmare end?!
 
 Let it all go.
 
-Beautiful day to
+Beautiful day to 
