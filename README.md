@@ -482,4 +482,4 @@ And a reminder for you rookies, bee law number one, absolutely no talking to hum
 
  All right, launch positions!
 
-Buzz, buzz, bu
+Buzz, buzz, buz
