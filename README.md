@@ -1644,4 +1644,4 @@ You mean like this?
 
 Bears kill bees!
 
-How'd you lik
+How'd you like
