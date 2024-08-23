@@ -2176,4 +2176,4 @@ Vanessa? Why are you leaving?
 
 Where are you going?
 
-To the final Tournament of Ro
+To the final Tournament of Ros
