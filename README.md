@@ -42,4 +42,4 @@ Those were awkward.
 Three days college. I'm glad I took a day and hitchhiked around The Hive.
 You did come back different.
 Hi, Barry. Artie, growing a mustache? Looks good.
-Hear about Fra
+Hear about Fran
