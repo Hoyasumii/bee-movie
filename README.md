@@ -1754,4 +1754,4 @@ Mamma mia, that's a lot of pages.
 
 A lot of ads.
 
-Remember what Van said, why is your life more v
+Remember what Van said, why is your life more va
