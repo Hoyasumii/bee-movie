@@ -1824,4 +1824,4 @@ Yeah.
 
 Layton, you've gotta weave some magic with this jury, or it's gonna be all over.
 
-Don't worry. The on
+Don't worry. The onl
