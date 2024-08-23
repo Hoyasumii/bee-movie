@@ -2254,4 +2254,4 @@ Repollination!
 
 Across the nation!
 
-Tournament of Roses, Pasadena, Californ
+Tournament of Roses, Pasadena, Californi
