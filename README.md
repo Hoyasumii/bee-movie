@@ -1306,4 +1306,4 @@ Whassup, bee boy?
 
 Hey, Blood.
 
-Just a row o
+Just a row of
