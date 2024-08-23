@@ -630,4 +630,4 @@ Hi, bee.
 
 He's back here!
 
-He's going to s
+He's going to st
