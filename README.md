@@ -2658,4 +2658,4 @@ Oh, yeah.
 
 That's our Barry.
 
-Mom! The bees are b
+Mom! The bees are ba
