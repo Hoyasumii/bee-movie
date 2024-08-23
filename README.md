@@ -1909,3 +1909,5 @@ What was it like to sting someone?
 I can't explain it. It was all... All adrenaline and then...and then ecstasy!
 
 All right.
+
+Y
