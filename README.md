@@ -2668,4 +2668,4 @@ Would you like some honey with that?
 
 It is bee-approved. Don't forget these.
 
-Milk, cream, ch
+Milk, cream, che
