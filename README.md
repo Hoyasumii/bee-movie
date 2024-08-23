@@ -1174,4 +1174,4 @@ Why is this here?
 
 For people. We eat it.
 
-You don't have enough food of yo
+You don't have enough food of you
