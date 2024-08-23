@@ -2308,4 +2308,4 @@ You and your insect pack your float?
 
 Yes.
 
-Has i
+Has it
