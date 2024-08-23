@@ -652,4 +652,4 @@ Ken, could you close the window please?
 
 Ken, could you close the window please?
 
-Check out my new resume. I made it into a fo
+Check out my new resume. I made it into a fol
