@@ -1960,4 +1960,4 @@ Well, Your Honor, it's interesting. Bees are trained to fly haphazardly, and as 
 
 I actually heard a funny story about...
 
-Your Honor, haven't these ridiculous bugs taken up enough of this 
+Your Honor, haven't these ridiculous bugs taken up enough of this c
