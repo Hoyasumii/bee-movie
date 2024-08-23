@@ -830,4 +830,4 @@ Are you all right?
 
 No.
 
-He's making the tie in the cab as they'
+He's making the tie in the cab as they'r
