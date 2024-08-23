@@ -1766,4 +1766,4 @@ Not as much.
 
 Water bug! Not taking sides!
 
-Ken, I'm wearing a Ch
+Ken, I'm wearing a Cha
