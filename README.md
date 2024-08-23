@@ -1809,3 +1809,5 @@ I'm sorry about all that.
 I know it's got an aftertaste! I like it!
 
 I always felt there was some kind of barrier between Ken and me. I couldn't overcome it.
+
+O
