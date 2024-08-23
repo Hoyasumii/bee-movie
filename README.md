@@ -225,4 +225,4 @@ Oh, no!
 I have to, before I go to work for the rest of my life.
 You're gonna die! You're crazy! Hello?
 Another call coming in.
-If anyone's feeling brave, there's a Korean d
+If anyone's feeling brave, there's a Korean de
