@@ -2446,4 +2446,4 @@ But let me tell you about a small job. If you do it well, it makes a big differe
 
 More than we realized. To us, to everyone.
 
-That's why I want to get bees back to working together. That's the bee way! We
+That's why I want to get bees back to working together. That's the bee way! We'
