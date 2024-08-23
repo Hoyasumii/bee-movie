@@ -1114,4 +1114,4 @@ How come you don't fly everywhere?
 
 It's exhausting. Why don't you run everywhere? It's faster.
 
-Yeah, O
+Yeah, OK
