@@ -1246,4 +1246,4 @@ they're on the road to nowhere!
 
 Just keep still.
 
-What? You're no
+What? You're not
