@@ -1538,4 +1538,4 @@ And artificial flowers.
 
 Oh, those just get me psychotic!
 
-Yeah, me too
+Yeah, me too.
