@@ -206,4 +206,4 @@ Any chance of getting the Krelman?
 Sure, you're on.
 I'm sorry, the Krelman just closed out.
 Wax monkey's always open.
-The Krelman o
+The Krelman op
