@@ -2622,4 +2622,4 @@ Right.
 
 Barry, it worked!
 
-Did you see the giant f
+Did you see the giant fl
