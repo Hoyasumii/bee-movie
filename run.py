@@ -9,5 +9,5 @@ with open(sys.argv[1], "r", encoding="utf-8") as doc:
       for letter in item:
         testFile.write(letter)
         os.system("git add .")
-        os.system(f'git commit -m "A Letra \"{letter}\"" foi adicionada"')
+        os.system(f'git commit -m "A Letra {letter} foi adicionada"')
         os.system("git push")
