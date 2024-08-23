@@ -1556,4 +1556,4 @@ You sure you want to go through with it?
 
 Am I sure? When I'm done with the humans, they won't be able to say, "Honey, I'm home," without paying a royalty!
 
-It's an incredible scene here in downtown Manhattan, where the world anxiously waits, because for the first time in history, we will hea
+It's an incredible scene here in downtown Manhattan, where the world anxiously waits, because for the first time in history, we will hear
