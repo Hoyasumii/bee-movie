@@ -1690,4 +1690,4 @@ Say it!
 
 Mr. Liotta, please sit down!
 
-I think it was awfully nice of that bear to pitch in like th
+I think it was awfully nice of that bear to pitch in like tha
