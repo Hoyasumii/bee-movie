@@ -496,4 +496,4 @@ Wind, check.
 
 Antennae, check.
 
-Nec
+Nect
