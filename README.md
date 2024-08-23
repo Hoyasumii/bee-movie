@@ -1654,4 +1654,4 @@ But you've never been a police officer, have you?
 
 No, I haven't.
 
-No, you haven't. And 
+No, you haven't. And s
