@@ -2162,4 +2162,4 @@ How do we do it?
 
 I'll sting you, you step on me.
 
-That just kills you twice
+That just kills you twice.
