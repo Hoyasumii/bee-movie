@@ -1636,4 +1636,4 @@ I couldn't hear you.
 
 No.
 
-No. Because y
+No. Because yo
