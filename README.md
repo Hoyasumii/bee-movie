@@ -2412,4 +2412,4 @@ Barry Benson, fresh from his legal victory...
 
 That's Barry!
 
-...is attempting
+...is attempting 
