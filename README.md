@@ -1944,4 +1944,4 @@ That's it! That's our case!
 
 It is? It's not over?
 
-Get d
+Get dr
