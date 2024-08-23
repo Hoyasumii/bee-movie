@@ -974,4 +974,4 @@ Spider?
 
 I'm not attracted to spiders.
 
-I kno
+I know
