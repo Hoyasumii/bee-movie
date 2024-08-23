@@ -2478,4 +2478,4 @@ All of you, let's get behind this fellow! Move it out!
 
 Move out!
 
-Our only chance is if I do what I'd do, you copy 
+Our only chance is if I do what I'd do, you copy m
