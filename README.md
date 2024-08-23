@@ -196,4 +196,4 @@ What'd you get?
 Picking crud out. Stellar!
 Wow!
 Couple of newbies?
-Yes, sir! Our first day! We are ready
+Yes, sir! Our first day! We are ready!
