@@ -1,3 +1,3 @@
 BEE Movie
 
-Written by Jerr
+Written by Jerry
