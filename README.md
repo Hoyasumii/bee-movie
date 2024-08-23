@@ -854,4 +854,4 @@ So, what are you gonna do, Barry?
 
 About work? I don't know.
 
-I want to do my part for The Hive, but I can't d
+I want to do my part for The Hive, but I can't do
