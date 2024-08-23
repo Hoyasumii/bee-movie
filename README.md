@@ -1298,4 +1298,4 @@ You hear something?
 
 Like what?
 
-Like t
+Like ti
