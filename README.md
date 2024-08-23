@@ -1084,4 +1084,4 @@ He doesn't respond to yelling!
 
 Then why yell at me?
 
-Because you don't lis
+Because you don't list
