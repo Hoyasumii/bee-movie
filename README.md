@@ -1048,4 +1048,4 @@ How much longer will this go on?
 
 It's been three days! Why aren't you working?
 
-I've got a lot of big life de
+I've got a lot of big life dec
