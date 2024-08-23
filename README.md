@@ -1596,4 +1596,4 @@ Mr. Montgomery, your opening statement, please.
 
 Ladies and gentlemen of the jury, my grandmother was a simple woman. Born on a farm, she believed it was man's divine right to benefit from the bounty of nature God put before us.
 
-If we lived in the topsy-
+If we lived in the topsy-t
