@@ -1518,4 +1518,4 @@ Bye-bye.
 
 Why is yogurt night so difficult?!
 
-You poor thi
+You poor thin
