@@ -1364,4 +1364,4 @@ Oh, my!
 
 What's going on? Are you OK?
 
-Yeah. It do
+Yeah. It doe
