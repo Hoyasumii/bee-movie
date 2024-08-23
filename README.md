@@ -26,4 +26,4 @@ Here's the graduate.
 We're very proud of you, son.
 A perfect report card, all B's.
 Very proud.
-Ma! I got a t
+Ma! I got a th
