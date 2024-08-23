@@ -850,4 +850,4 @@ That's the kind of stuff we do.
 
 Yeah, different.
 
-So, what are you g
+So, what are you go
