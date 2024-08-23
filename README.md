@@ -44,4 +44,4 @@ You did come back different.
 Hi, Barry. Artie, growing a mustache? Looks good.
 Hear about Frankie?
 Yeah.
-You going to the f
+You going to the fu
