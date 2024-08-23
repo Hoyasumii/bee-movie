@@ -167,4 +167,4 @@ Son, let me tell you about stirring.
 You grab that stick, and you just move it around, and you stir it around.
 You get yourself into a rhythm.
 It's a beautiful thing.
-You know, Dad, the mor
+You know, Dad, the more
