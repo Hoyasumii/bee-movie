@@ -840,4 +840,4 @@ The wedding is on.
 
 And he says, "Watermelon?
 
-I thought you said Guate
+I thought you said Guatem
