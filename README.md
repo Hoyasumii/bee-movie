@@ -1366,4 +1366,4 @@ What's going on? Are you OK?
 
 Yeah. It doesn't last too long.
 
-Do you know you're i
+Do you know you're in
