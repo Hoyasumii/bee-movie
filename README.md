@@ -1604,4 +1604,4 @@ Talking bee!
 
 How do we know this isn't some sort of holographic motion-picture-capture Hollywood wizardry?
 
-They could be using laser beams! Robotics! Ventriloquism! Cl
+They could be using laser beams! Robotics! Ventriloquism! Clo
