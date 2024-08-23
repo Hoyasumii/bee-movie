@@ -824,4 +824,4 @@ These stripes don't help.
 
 You look great!
 
-I don't know if you know anything about fa
+I don't know if you know anything about fas
