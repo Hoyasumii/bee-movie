@@ -526,4 +526,4 @@ Wow!
 
 Flowers!
 
-This is Blu
+This is Blue
