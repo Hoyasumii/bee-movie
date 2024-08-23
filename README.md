@@ -1894,4 +1894,4 @@ Is there much pain?
 
 Yeah.
 
-I... I blew the whole case, d
+I... I blew the whole case, di
