@@ -4,4 +4,4 @@ Written by Jerry Seinfeld & Andy Robin & Barry Marder & Spike Feresten
 
 
 BEE Movie
-According to all known laws of aviati
+According to all known laws of aviatio
