@@ -1844,4 +1844,4 @@ Yes.
 
 How good? Do you live together?
 
-Wait a minute... Are y
+Wait a minute... Are yo
