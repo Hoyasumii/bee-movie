@@ -2132,4 +2132,4 @@ Doesn't look very good, does it?
 
 No.
 
-And whose fault do you think th
+And whose fault do you think tha
