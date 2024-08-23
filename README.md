@@ -834,4 +834,4 @@ He's making the tie in the cab as they're flying up Madison.
 
 He finally gets there.
 
-He runs up the st
+He runs up the ste
