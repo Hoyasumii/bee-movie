@@ -1382,4 +1382,4 @@ Bee honey.
 
 Our honey is being brazenly stolen on a massive scale!
 
-This is worse than anyt
+This is worse than anyth
