@@ -1174,4 +1174,4 @@ Why is this here?
 
 For people. We eat it.
 
-You don't have enoug
+You don't have enough
