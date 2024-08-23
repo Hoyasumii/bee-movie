@@ -1874,4 +1874,4 @@ Oh, I'm hit!! Oh, lordy, I am hit!
 
 Order! Order!
 
-The venom! The venom is coursing through my veins! I have been felled by a winged beast of destructio
+The venom! The venom is coursing through my veins! I have been felled by a winged beast of destruction
