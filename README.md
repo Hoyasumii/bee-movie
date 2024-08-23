@@ -2272,4 +2272,4 @@ Thank you. It was a gift.
 
 Once inside, we just pick the right float.
 
-How about The Princess and the Pe
+How about The Princess and the Pea
