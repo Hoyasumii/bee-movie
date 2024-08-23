@@ -2396,4 +2396,4 @@ It's got giant wings, huge engines.
 
 I can't fly a plane.
 
-Why no
+Why not
