@@ -1094,4 +1094,4 @@ Where are you going?
 
 I'm meeting a friend.
 
-A girl? Is this why you can't decid
+A girl? Is this why you can't decide
