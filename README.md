@@ -72,4 +72,4 @@ Welcome to Honex, a division of Honesco and a part of the Hexagon Group.
 This is it!
 Wow.
 Wow.
-We know that you, as a bee, have worked yo
+We know that you, as a bee, have worked you
