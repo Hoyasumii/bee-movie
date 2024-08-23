@@ -2592,4 +2592,4 @@ I'm aiming at the flower!
 
 That's a fat guy in a flowered shirt.
 
-I mean the giant 
+I mean the giant p
