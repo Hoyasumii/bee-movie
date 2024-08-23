@@ -1,3 +1,3 @@
 BEE Movie
 
-Written b
+Written by
