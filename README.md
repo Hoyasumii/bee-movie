@@ -780,4 +780,4 @@ What?
 
 The talking thing.
 
-Same way you did, I guess. "Mama, Dada, honey." You pick it up
+Same way you did, I guess. "Mama, Dada, honey." You pick it up.
