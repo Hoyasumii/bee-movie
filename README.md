@@ -2444,4 +2444,4 @@ The way we work may be a mystery to you. Making honey takes a lot of bees doing 
 
 But let me tell you about a small job. If you do it well, it makes a big difference.
 
-More than we realized. To us
+More than we realized. To us,
