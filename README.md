@@ -2152,4 +2152,4 @@ And then, of course...
 
 The human species?
 
-So if there's no more pollination, i
+So if there's no more pollination, it
