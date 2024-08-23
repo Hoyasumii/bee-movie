@@ -1138,4 +1138,4 @@ Very carefully.
 
 You kick a wall, take a walk, write an angry letter and throw it out. Work through it like any emotion: Anger, jealousy, lust.
 
-Oh, m
+Oh, my
