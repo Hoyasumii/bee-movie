@@ -1092,4 +1092,4 @@ Sorry, I've gotta go.
 
 Where are you going?
 
-I'm meeting a frien
+I'm meeting a friend
