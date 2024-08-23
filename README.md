@@ -686,4 +686,4 @@ Wait!
 
 Don't kill him!
 
-You know I'm all
+You know I'm alle
