@@ -1688,4 +1688,4 @@ Order! Order, I say!
 
 Say it!
 
-Mr. Liotta, please sit do
+Mr. Liotta, please sit dow
