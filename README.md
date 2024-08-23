@@ -862,4 +862,4 @@ You do?
 
 Sure.
 
-My parents wanted me to be a lawyer or a doct
+My parents wanted me to be a lawyer or a docto
