@@ -862,4 +862,4 @@ You do?
 
 Sure.
 
-My par
+My pare
