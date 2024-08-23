@@ -2566,4 +2566,4 @@ Thinking bee!
 
 Thinking bee! Thinking bee!
 
-Vanessa, aim for the fl
+Vanessa, aim for the flo
