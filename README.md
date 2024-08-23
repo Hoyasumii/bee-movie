@@ -468,4 +468,4 @@ Thank you.
 
 OK.
 
-You got a 
+You got a r
