@@ -2666,4 +2666,4 @@ Here's your change. Have a great afternoon! Can I help who's next?
 
 Would you like some honey with that?
 
-It is bee
+It is bee-
