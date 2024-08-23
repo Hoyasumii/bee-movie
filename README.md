@@ -1884,4 +1884,4 @@ What Angel of Mercy will come forward to suck the poison from my heaving buttock
 
 I will have order in this court. Order! Order, please!
 
-The case of the honeybees versus the human race took a pointed T
+The case of the honeybees versus the human race took a pointed Tu
