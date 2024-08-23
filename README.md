@@ -1910,4 +1910,4 @@ I can't explain it. It was all... All adrenaline and then...and then ecstasy!
 
 All right.
 
-You think it was 
+You think it was a
