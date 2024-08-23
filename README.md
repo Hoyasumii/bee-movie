@@ -2054,4 +2054,4 @@ Can't breathe.
 
 Bring it in, boys!
 
-Hold it righ
+Hold it right
