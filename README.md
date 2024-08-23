@@ -662,4 +662,4 @@ Maybe this time. This time. This time. This time! This time! This... Drapes!
 
 That is diabolical.
 
-It's fa
+It's fan
