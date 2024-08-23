@@ -183,4 +183,4 @@ I'm gonna get an ant tattoo!
 Let's open some honey and celebrate!
 Maybe I'll pierce my thorax. Shave my antennae. Shack up with a grasshopper. Get a gold tooth and call everybody "dawg"!
 I'm so proud.
-We're starting work toda
+We're starting work today
