@@ -1420,4 +1420,4 @@ your hands were still stirring. You couldn't stop.
 
 I remember that.
 
-What right do they ha
+What right do they hav
