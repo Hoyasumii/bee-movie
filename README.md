@@ -652,4 +652,4 @@ Ken, could you close the window please?
 
 Ken, could you close the window please?
 
-Check out m
+Check out my
