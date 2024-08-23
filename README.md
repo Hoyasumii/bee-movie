@@ -1750,4 +1750,4 @@ What's that?
 
 Italian Vogue.
 
-Mamma mia, that'
+Mamma mia, that's
