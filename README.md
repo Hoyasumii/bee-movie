@@ -1726,4 +1726,4 @@ That's where I usually sit. Right... there.
 
 Ken, Barry was looking at your resume, and he agreed with me that eating with chopsticks isn't really a special skill.
 
-You think I don't see wh
+You think I don't see wha
