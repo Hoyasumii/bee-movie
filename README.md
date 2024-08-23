@@ -1218,4 +1218,4 @@ So you can talk!
 
 I can talk. And now you'll start talking!
 
-Where you getting
+Where you getting 
