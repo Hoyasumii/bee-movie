@@ -157,4 +157,4 @@ We're going 0900 at J-Gate.
 What do you think, buzzy-boy?
 Are you bee enough?
 I might be. It all depends on what 0900 means.
-Hey, Honex
+Hey, Honex!
