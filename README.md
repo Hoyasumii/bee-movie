@@ -2250,4 +2250,4 @@ Pollen!
 
 Flowers.
 
-Repollinat
+Repollinati
