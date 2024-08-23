@@ -187,4 +187,4 @@ We're starting work today!
 Today's the day.
 Come on! All the good jobs will be gone.
 Yeah, right.
-Pollen counting, stunt bee, pouring, stirrer, front desk, hair re
+Pollen counting, stunt bee, pouring, stirrer, front desk, hair rem
