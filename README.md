@@ -544,4 +544,4 @@ Ever see pollination up close?
 
 No, sir.
 
-I pick up some po
+I pick up some pol
