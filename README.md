@@ -2288,4 +2288,4 @@ The pea?
 
 It goes under the mattresses.
 
-Not in this fairy tale, sweeth
+Not in this fairy tale, sweethe
