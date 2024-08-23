@@ -662,4 +662,4 @@ Maybe this time. This time. This time. This time! This time! This... Drapes!
 
 That is diabolical.
 
-It's fantastic. It's go
+It's fantastic. It's got
