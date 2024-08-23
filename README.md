@@ -1006,4 +1006,4 @@ They call it a crumb.
 
 It was so stingin' stripey!
 
-And 
+And t
