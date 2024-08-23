@@ -1798,4 +1798,4 @@ Long time? What are you talking about?! Are there other bugs in your life?
 
 Fine! Talking bees, no yogurt night...
 
-My nerves are fried f
+My nerves are fried fr
