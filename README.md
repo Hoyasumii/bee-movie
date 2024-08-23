@@ -1662,4 +1662,4 @@ Have you ever been stung, Mr. Sting? Because I'm feeling a little stung, Sting. 
 
 That's not his real name?! You idiots!
 
-Mr. Liotta, first, belated congratulations on your Emmy win for a guest spot on ER in 2005
+Mr. Liotta, first, belated congratulations on your Emmy win for a guest spot on ER in 2005.
