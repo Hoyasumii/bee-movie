@@ -716,4 +716,4 @@ Sure, Ken. You know, whatever.
 
 You could put carob chips on there.
 
-Bye
+Bye.
