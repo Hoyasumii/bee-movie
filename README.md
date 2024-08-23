@@ -2542,4 +2542,4 @@ Thinking bee.
 
 Thinking bee!
 
-Thinking bee! Thinking be
+Thinking bee! Thinking bee
