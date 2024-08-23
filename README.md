@@ -608,4 +608,4 @@ I don't think these are flowers.
 
 Should we tell him?
 
-I think he kno
+I think he know
