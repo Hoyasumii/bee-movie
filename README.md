@@ -730,4 +730,4 @@ Nah.
 
 What would I say?
 
-I could really ge
+I could really get
