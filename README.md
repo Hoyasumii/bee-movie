@@ -1976,4 +1976,4 @@ Where is the evidence?
 
 Show me the smoking gun!
 
-Hold i
+Hold it
