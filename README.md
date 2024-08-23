@@ -1532,4 +1532,4 @@ So why are you helping me?
 
 Bees have good qualities. And it takes my mind off the shop. Instead of flowers, people are giving balloon bouquets now.
 
-Those are 
+Those are g
