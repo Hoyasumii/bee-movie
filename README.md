@@ -2058,4 +2058,4 @@ Hold it right there! Good.
 
 Tap it.
 
-Mr. Buzzwell, we just passed three cups an
+Mr. Buzzwell, we just passed three cups and
