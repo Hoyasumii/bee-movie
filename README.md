@@ -2550,4 +2550,4 @@ What?
 
 I don't know. It's strong, pulling me.
 
-Like a 2
+Like a 27
