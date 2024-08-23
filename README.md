@@ -1866,4 +1866,4 @@ Don't y'all date your cousins?
 
 Objection!
 
-I'm going t
+I'm going to
