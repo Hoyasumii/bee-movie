@@ -1000,4 +1000,4 @@ This is over!
 
 Eat this.
 
-This is not over! Wha
+This is not over! What
