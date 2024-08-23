@@ -70,4 +70,4 @@ Wonder what it'll be like?
 A little scary.
 Welcome to Honex, a division of Honesco and a part of the Hexagon Group.
 This is it!
-Wow
+Wow.
