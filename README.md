@@ -1729,3 +1729,5 @@ Ken, Barry was looking at your resume, and he agreed with me that eating with ch
 You think I don't see what you're doing?
 
 I know how hard it is to find the right job. We have that in common.
+
+D
