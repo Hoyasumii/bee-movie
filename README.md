@@ -2058,4 +2058,4 @@ Hold it right there! Good.
 
 Tap it.
 
-Mr. Buzzwell, we jus
+Mr. Buzzwell, we just
