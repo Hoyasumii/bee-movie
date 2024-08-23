@@ -1628,4 +1628,4 @@ Yes, they provide beekeepers for our farms.
 
 Beekeeper. I find that to be a very disturbing term.
 
-I don't imagine you employ any bee-free-ers, d
+I don't imagine you employ any bee-free-ers, do
