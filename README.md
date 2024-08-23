@@ -1552,4 +1552,4 @@ This lawsuit's a pretty big deal.
 
 I guess.
 
-You sure you w
+You sure you wa
