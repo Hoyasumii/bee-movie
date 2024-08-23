@@ -494,4 +494,4 @@ Yeah. Yeah, bring it on.
 
 Wind, check.
 
-Antennae, chec
+Antennae, check
