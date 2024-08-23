@@ -528,4 +528,4 @@ Flowers!
 
 This is Blue Leader, We have roses visual.
 
-Bring it ar
+Bring it aro
