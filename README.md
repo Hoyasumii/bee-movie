@@ -194,4 +194,4 @@ One of them's yours! Congratulations!
 Step to the side.
 What'd you get?
 Picking crud out. Stellar!
-Wo
+Wow
