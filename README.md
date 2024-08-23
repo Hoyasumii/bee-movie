@@ -868,4 +868,4 @@ Really?
 
 My only interest is flowers.
 
-Our new queen was just el
+Our new queen was just ele
