@@ -1434,4 +1434,4 @@ That would hurt.
 
 No.
 
-Up the nose? Tha
+Up the nose? That
