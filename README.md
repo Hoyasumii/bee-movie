@@ -2622,4 +2622,4 @@ Right.
 
 Barry, it worked!
 
-Did you see t
+Did you see th
