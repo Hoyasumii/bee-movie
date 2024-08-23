@@ -1770,4 +1770,4 @@ Ken, I'm wearing a Chapstick hat!
 
 This is pathetic!
 
-I've got is
+I've got iss
