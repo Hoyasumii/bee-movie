@@ -1570,4 +1570,4 @@ Everybody needs to stay behind the barricade.
 
 What's the matter?
 
-I don't know, I j
+I don't know, I ju
