@@ -1046,4 +1046,4 @@ I gotta start thinking bee?
 
 How much longer will this go on?
 
-It's been thr
+It's been thre
