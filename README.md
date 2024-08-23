@@ -922,4 +922,4 @@ Well, not nothing, but... Anyway...
 
 This can't possibly work.
 
-He's all set to go
+He's all set to go.
