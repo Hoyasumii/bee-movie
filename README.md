@@ -1696,4 +1696,4 @@ Are we doing everything right, legally?
 
 I'm a florist.
 
-Rig
+Righ
