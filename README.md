@@ -474,4 +474,4 @@ So be careful. As always, watch your brooms, hockey sticks, dogs, birds, bears a
 
 Also, I got a couple of reports of root beer being poured on us.
 
-Murphy's in a home because 
+Murphy's in a home because o
