@@ -1348,4 +1348,4 @@ They are pinheads!
 
 Pinhead.
 
-Check out the new smoke
+Check out the new smoker
