@@ -2122,4 +2122,4 @@ This.
 
 What happened here?
 
-That is not the half of
+That is not the half of 
