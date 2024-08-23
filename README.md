@@ -2266,4 +2266,4 @@ Vanessa Bloome, FTD.
 
 Official floral business. It's real.
 
-Sorry, ma'am. Ni
+Sorry, ma'am. Nic
