@@ -1854,4 +1854,4 @@ So those aren't your real parents!
 
 Oh, Barry...
 
-Yes, th
+Yes, the
