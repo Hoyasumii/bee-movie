@@ -103,4 +103,4 @@ How can you say that?
 One job forever?
 That's an insane choice to have to make.
 I'm relieved. Now we only have to make one decision in life.
-But, Adam, how could they never have t
+But, Adam, how could they never have to
