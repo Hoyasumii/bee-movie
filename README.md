@@ -650,4 +650,4 @@ Mayday! Mayday! Bee going down!
 
 Ken, could you close the window please?
 
-Ken, could you clo
+Ken, could you clos
