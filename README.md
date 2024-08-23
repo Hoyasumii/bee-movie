@@ -2160,4 +2160,4 @@ How about a suicide pact?
 
 How do we do it?
 
-I'll sting you, you step on
+I'll sting you, you step on 
