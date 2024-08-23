@@ -2362,4 +2362,4 @@ Good afternoon, passengers. This is your captain. Would a Miss Vanessa Bloome in
 
 What happened here?
 
-There was a DustBuster, a toupee, a life raft ex
+There was a DustBuster, a toupee, a life raft exp
