@@ -1850,4 +1850,4 @@ I've seen a bee documentary or two. From what I understand, doesn't your queen g
 
 Yeah, but...
 
-So tho
+So thos
