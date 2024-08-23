@@ -544,4 +544,4 @@ Ever see pollination up close?
 
 No, sir.
 
-I pic
+I pick
