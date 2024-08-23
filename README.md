@@ -1920,4 +1920,4 @@ What will the humans do to us if they win?
 
 I don't know.
 
-I hear they put the roaches in motels. That doesn't sound so b
+I hear they put the roaches in motels. That doesn't sound so ba
