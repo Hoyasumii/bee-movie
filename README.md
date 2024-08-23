@@ -2433,3 +2433,5 @@ Their wings are too small... Haven't we heard this a million times?
 "The surface area of the wings and body mass make no sense."
 
 Get this on the air!
+
+G
