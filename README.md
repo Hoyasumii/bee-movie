@@ -1918,4 +1918,4 @@ What were we thinking? Look at us. We're just a couple of bugs in this world.
 
 What will the humans do to us if they win?
 
-I do
+I don
