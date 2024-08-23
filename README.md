@@ -2226,4 +2226,4 @@ This is a total disaster, all my fault.
 
 Yes, it kind of is.
 
-I've ruined the planet. I w
+I've ruined the planet. I wa
