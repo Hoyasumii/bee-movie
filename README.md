@@ -2328,4 +2328,4 @@ I think this is gonna work.
 
 It's got to work.
 
-Attention, passengers, this is Captain Scott. We have a bit 
+Attention, passengers, this is Captain Scott. We have a bit o
