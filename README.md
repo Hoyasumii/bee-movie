@@ -1354,4 +1354,4 @@ Oh, sweet. That's the one you want. The Thomas 3000!
 
 Smoker?
 
-Ninety puffs a minute, semi-automatic. Twice t
+Ninety puffs a minute, semi-automatic. Twice th
