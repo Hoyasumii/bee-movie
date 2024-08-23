@@ -566,4 +566,4 @@ Affirmative.
 
 That was on the line!
 
-This is the coolest. What is i
+This is the coolest. What is it
