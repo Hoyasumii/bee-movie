@@ -636,4 +636,4 @@ Nobody move. If you don't move, he won't sting you. Freeze!
 
 He blinked!
 
-Spray him, Gran
+Spray him, Grann
