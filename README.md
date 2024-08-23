@@ -1212,4 +1212,4 @@ Well, I guess I'll go home now and just leave this nice honey out, with no one a
 
 You're busted, box boy!
 
-I knew I hear
+I knew I heard
