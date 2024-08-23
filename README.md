@@ -2092,4 +2092,4 @@ Are they out celebrating?
 
 They're home.
 
-They don't know wha
+They don't know what
