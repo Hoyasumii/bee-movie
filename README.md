@@ -2558,4 +2558,4 @@ Thinking bee!
 
 Thinking bee! Thinking bee!
 
-What in the worl
+What in the world
