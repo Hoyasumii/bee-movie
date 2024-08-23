@@ -1670,4 +1670,4 @@ I see from your resume that you're devilishly handsome with a churning inner tur
 
 I enjoy what I do. Is that a crime?
 
-Not yet it isn't. But is this what it's come to for you? Exploiting tiny, hel
+Not yet it isn't. But is this what it's come to for you? Exploiting tiny, help
