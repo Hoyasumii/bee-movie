@@ -220,4 +220,4 @@ What happened to you?
 Where are you?
 I'm going out.
 Out? Out where?
-Out th
+Out the
