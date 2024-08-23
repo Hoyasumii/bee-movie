@@ -1498,4 +1498,4 @@ Is that that same bee?
 
 Yes, it is!
 
-I'm helping him sue the human rac
+I'm helping him sue the human race
