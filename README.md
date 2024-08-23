@@ -1590,4 +1590,4 @@ A privilege.
 
 Mr. Benson... you're representing all the bees of the world?
 
-I'm kidding. Yes, Yo
+I'm kidding. Yes, You
