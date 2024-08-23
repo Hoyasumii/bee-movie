@@ -1988,4 +1988,4 @@ What, this? This harmless little contraption? This couldn't hurt a fly, let alon
 
 Look at what has happened to bees who have never been asked, "Smoking or non?" Is this what nature intended for us? To be forcibly addicted to smoke machines and man-made wooden slat work camps?
 
-Living out our
+Living out our 
