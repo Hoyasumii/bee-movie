@@ -1216,4 +1216,4 @@ I knew I heard something.
 
 So you can talk!
 
-I can talk. And
+I can talk. And 
