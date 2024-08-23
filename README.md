@@ -748,4 +748,4 @@ I'm sorry. You're talking.
 
 Yes, I know.
 
-You're talki
+You're talkin
