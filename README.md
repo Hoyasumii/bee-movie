@@ -750,4 +750,4 @@ Yes, I know.
 
 You're talking!
 
-I'm so so
+I'm so sor
