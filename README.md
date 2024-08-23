@@ -1754,4 +1754,4 @@ Mamma mia, that's a lot of pages.
 
 A lot of ads.
 
-Remember what Van said, w
+Remember what Van said, wh
