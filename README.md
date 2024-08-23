@@ -1658,4 +1658,4 @@ No, you haven't. And so here we have yet another example of bee culture casually
 
 Oh, please.
 
-Have you ever been stung, Mr. Sting? Because I'm feeling a little stung, St
+Have you ever been stung, Mr. Sting? Because I'm feeling a little stung, Sti
