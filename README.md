@@ -910,4 +910,4 @@ Thanks!
 
 Yeah.
 
-All rig
+All righ
