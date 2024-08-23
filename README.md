@@ -161,4 +161,4 @@ Hey, Honex!
 Dad, you surprised me.
 You decide what you're interested in?
 Well, there's a lot of choices.
-But yo
+But you
