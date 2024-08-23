@@ -502,4 +502,4 @@ Wings, check.
 
 Stinger, check.
 
-Scared out of my sh
+Scared out of my sho
