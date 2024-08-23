@@ -1818,4 +1818,4 @@ I believe Mr. Montgomery is about out of ideas.
 
 We would like to call Mr. Barry Benson Bee to the stand.
 
-Good idea! You can really see why he's considered one of t
+Good idea! You can really see why he's considered one of th
