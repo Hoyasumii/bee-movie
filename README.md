@@ -1964,4 +1964,4 @@ Your Honor, haven't these ridiculous bugs taken up enough of this court's valuab
 
 They have presented no compelling evidence to support their charges against my clients, who run legitimate businesses.
 
-I move for a compl
+I move for a comple
