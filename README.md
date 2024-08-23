@@ -1708,4 +1708,4 @@ Hello.
 
 I didn't think you were coming.
 
-No, I was jus
+No, I was just
