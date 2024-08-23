@@ -1248,4 +1248,4 @@ Just keep still.
 
 What? You're not dead?
 
-Do I look dead? They will wipe anything that moves. Where 
+Do I look dead? They will wipe anything that moves. Where y
