@@ -502,4 +502,4 @@ Wings, check.
 
 Stinger, check.
 
-Scared ou
+Scared out
