@@ -2104,4 +2104,4 @@ It's the greatest thing in the world! I was excited to be part of making it.
 
 This was my new desk. This was my new job. I wanted to do it really well. And now...
 
-Now I c
+Now I ca
