@@ -86,4 +86,4 @@ What do you think he makes?
 Not enough.
 Here we have our latest advancement, the Krelman.
 What does that do?
-Catches that little strand o
+Catches that little strand of
