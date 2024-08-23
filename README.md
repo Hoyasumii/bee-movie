@@ -1906,4 +1906,4 @@ They got it from the cafeteria downstairs, in a tuna sandwich. Look, there's a l
 
 What was it like to sting someone?
 
-I can't exp
+I can't expl
