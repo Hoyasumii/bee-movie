@@ -2294,4 +2294,4 @@ I'm getting the marshal.
 
 You do that! This whole parade is a fiasco!
 
-Let's see wha
+Let's see what
