@@ -1920,4 +1920,4 @@ What will the humans do to us if they win?
 
 I don't know.
 
-I hear they put 
+I hear they put t
