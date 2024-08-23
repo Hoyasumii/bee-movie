@@ -1044,4 +1044,4 @@ You know what your problem is, Barry?
 
 I gotta start thinking bee?
 
-How much longer will this g
+How much longer will this go
