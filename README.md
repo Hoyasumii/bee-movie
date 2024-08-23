@@ -788,4 +788,4 @@ Yeah.
 
 Bees are funny. If we didn't laugh, we'd cry with what we have to deal with.
 
-Anyway..
+Anyway...
