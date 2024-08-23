@@ -1994,4 +1994,4 @@ What are we gonna do?
 
 He's playing the species card.
 
-Ladies and gentlemen, plea
+Ladies and gentlemen, pleas
