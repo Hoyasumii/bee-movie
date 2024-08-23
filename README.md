@@ -1372,4 +1372,4 @@ Our queen was moved here. We had no choice.
 
 This is your queen? That's a man in women's clothes! That's a drag queen!
 
-What is this
+What is this?
