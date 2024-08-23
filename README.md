@@ -1028,4 +1028,4 @@ There's us and there's them!
 
 Yes, but who can deny the heart that is yearning?
 
-There's no yearning. Stop yearning. Listen to 
+There's no yearning. Stop yearning. Listen to m
