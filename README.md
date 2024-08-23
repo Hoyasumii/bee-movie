@@ -94,4 +94,4 @@ But bees know that every small job, if it's done well, means a lot.
 But choose carefully because you'll stay in the job you pick for the rest of your life.
 The same job the rest of your life? I didn't know that.
 What's the difference?
-You'll be happy to know that bees, as a species, haven't had one day off in 27 million yea
+You'll be happy to know that bees, as a species, haven't had one day off in 27 million year
