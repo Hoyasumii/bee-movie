@@ -570,4 +570,4 @@ This is the coolest. What is it?
 
 I don't know, but I'm loving this color.
 
-It sm
+It sme
