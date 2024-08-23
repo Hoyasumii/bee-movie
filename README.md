@@ -1912,4 +1912,4 @@ All right.
 
 You think it was all a trap?
 
-Of course. I'm sorry. I flew us r
+Of course. I'm sorry. I flew us ri
