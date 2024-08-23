@@ -2600,4 +2600,4 @@ Rotate around it.
 
 This is insane, Barry!
 
-This's the 
+This's the o
