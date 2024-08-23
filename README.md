@@ -2090,4 +2090,4 @@ What's going on? Where is everybody?
 
 Are they out celebrating?
 
-They're hom
+They're home
