@@ -910,4 +910,4 @@ Thanks!
 
 Yeah.
 
-All right. Well, then... I guess I'll see you around. O
+All right. Well, then... I guess I'll see you around. Or
