@@ -1136,4 +1136,4 @@ So you have to watch your temper.
 
 Very carefully.
 
-You kick a wall, take 
+You kick a wall, take a
