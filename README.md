@@ -2440,4 +2440,4 @@ Stand by.
 
 We're going live.
 
-The way we work may be a mystery to you. Making honey takes a lot of bees doing a lot o
+The way we work may be a mystery to you. Making honey takes a lot of bees doing a lot of
