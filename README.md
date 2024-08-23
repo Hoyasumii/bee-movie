@@ -1368,4 +1368,4 @@ Yeah. It doesn't last too long.
 
 Do you know you're in a fake hive with fake walls?
 
-Our q
+Our qu
