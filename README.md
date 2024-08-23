@@ -2544,4 +2544,4 @@ Thinking bee!
 
 Thinking bee! Thinking bee!
 
-Wait a minute.
+Wait a minute. 
