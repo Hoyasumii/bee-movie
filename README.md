@@ -464,4 +464,4 @@ Really? Feeling lucky, are you?
 
 Sign here, here. Just initial that.
 
-Than
+Thank
