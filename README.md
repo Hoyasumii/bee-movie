@@ -462,4 +462,4 @@ It's OK, Lou. We're gonna take him up.
 
 Really? Feeling lucky, are you?
 
-Sign here, here. Just in
+Sign here, here. Just ini
