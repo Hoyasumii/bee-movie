@@ -107,4 +107,4 @@ But, Adam, how could they never have told us that?
 Why would you question anything? We're bees.
 We're the most perfectly functioning society on Earth.
 You ever think maybe things work a little too well here?
-Li
+Lik
