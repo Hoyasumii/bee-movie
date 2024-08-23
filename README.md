@@ -2406,4 +2406,4 @@ Wait, Barry!
 
 We're headed into some lightning.
 
-This is Bob Bumble. We have some late-breaking news from JFK Airpor
+This is Bob Bumble. We have some late-breaking news from JFK Airport
