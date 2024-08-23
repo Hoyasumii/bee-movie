@@ -1666,4 +1666,4 @@ Mr. Liotta, first, belated congratulations on your Emmy win for a guest spot on 
 
 Thank you. Thank you.
 
-I see from your resume that you're devilishly handsome with a ch
+I see from your resume that you're devilishly handsome with a chu
