@@ -1624,4 +1624,4 @@ I suppose so.
 
 I see you also own Honeyburton and Honron!
 
-Yes, they provide beekeepers fo
+Yes, they provide beekeepers for
