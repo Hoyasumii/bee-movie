@@ -2460,4 +2460,4 @@ Hover?
 
 Forget hover.
 
-This isn't so hard
+This isn't so hard.
