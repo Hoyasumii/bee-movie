@@ -1392,4 +1392,4 @@ Do these look like rumors?
 
 That's a conspiracy theory. These are obviously doctored photos. How did you get mixed up in this?
 
-He's been tal
+He's been talk
