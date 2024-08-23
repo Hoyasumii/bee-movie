@@ -2190,4 +2190,4 @@ I know. Me neither.
 
 Tournament of Roses.
 
-Roses can't d
+Roses can't do
