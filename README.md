@@ -460,4 +460,4 @@ d it, son, flight deck's restricted.
 
 It's OK, Lou. We're gonna take him up.
 
-Really? Feeling lucky, are yo
+Really? Feeling lucky, are you
