@@ -966,4 +966,4 @@ Well, I met someone.
 
 You did? Was she Bee-ish?
 
-A wasp?! Your parent
+A wasp?! Your parents
