@@ -1742,4 +1742,4 @@ I'm going to drain the old stinger.
 
 Yeah, you do that.
 
-Loo
+Look
