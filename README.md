@@ -508,4 +508,4 @@ OK, ladies,
 
 let's move it out!
 
-Pound those petunia
+Pound those petunias
