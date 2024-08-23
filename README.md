@@ -2528,4 +2528,4 @@ Black and yellow.
 
 Hello.
 
-All right, let's drop this tin can on the blac
+All right, let's drop this tin can on the black
