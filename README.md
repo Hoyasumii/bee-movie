@@ -2100,4 +2100,4 @@ At least we got our honey back.
 
 Sometimes I think, so what if humans liked our honey? Who wouldn't?
 
-It's the greatest thing in the world! I was excited to be par
+It's the greatest thing in the world! I was excited to be part
