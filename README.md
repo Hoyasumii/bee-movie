@@ -2442,4 +2442,4 @@ We're going live.
 
 The way we work may be a mystery to you. Making honey takes a lot of bees doing a lot of small jobs.
 
-But let me tell you about a small job. If you do it well, it makes a big differenc
+But let me tell you about a small job. If you do it well, it makes a big difference
