@@ -1744,4 +1744,4 @@ Yeah, you do that.
 
 Look at that.
 
-You know, I've ju
+You know, I've jus
