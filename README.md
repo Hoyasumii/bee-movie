@@ -129,4 +129,4 @@ You can't just decide to be a Pollen Jock. You have to be bred for that.
 Right.
 Look. That's more pollen than you and I will see in a lifetime.
 It's just a status symbol.
-Bees make too much o
+Bees make too much of
