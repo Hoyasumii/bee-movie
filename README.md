@@ -2434,4 +2434,4 @@ Their wings are too small... Haven't we heard this a million times?
 
 Get this on the air!
 
-Got i
+Got it
