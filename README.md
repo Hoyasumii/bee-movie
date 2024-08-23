@@ -200,4 +200,4 @@ Yes, sir! Our first day! We are ready!
 Make your choice.
 You want to go first?
 No, you go.
-Oh, m
+Oh, my
