@@ -1906,4 +1906,4 @@ They got it from the cafeteria downstairs, in a tuna sandwich. Look, there's a l
 
 What was it like to sting someone?
 
-I can't explain it. It was all... All adrenaline and then...and then ecst
+I can't explain it. It was all... All adrenaline and then...and then ecsta
