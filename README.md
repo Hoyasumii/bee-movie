@@ -1094,4 +1094,4 @@ Where are you going?
 
 I'm meeting a friend.
 
-A girl? Is this why yo
+A girl? Is this why you
