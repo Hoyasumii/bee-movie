@@ -468,4 +468,4 @@ Thank you.
 
 OK.
 
-You got a rain advi
+You got a rain advis
