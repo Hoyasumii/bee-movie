@@ -1206,4 +1206,4 @@ Hey, Hector. You almost done?
 
 Almost.
 
-He is here. I sens
+He is here. I sense
