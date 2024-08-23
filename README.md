@@ -1046,4 +1046,4 @@ I gotta start thinking bee?
 
 How much longer will this go on?
 
-It's been three da
+It's been three day
