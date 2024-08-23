@@ -1982,4 +1982,4 @@ You want a smoking gun? Here is your smoking gun.
 
 What is that?
 
-It's a
+It's a 
