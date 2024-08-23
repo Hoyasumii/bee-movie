@@ -2036,4 +2036,4 @@ First, we'll demand a complete shutdown of all bee work camps.
 
 Then we want back the honey that was ours to begin with, every last drop.
 
-We demand an end to the glorification of the bear as anything more than a filthy, smelly, bad-breath
+We demand an end to the glorification of the bear as anything more than a filthy, smelly, bad-breath 
