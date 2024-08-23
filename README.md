@@ -1654,4 +1654,4 @@ But you've never been a police officer, have you?
 
 No, I haven't.
 
-No, you haven't. And so here we have yet another example of be
+No, you haven't. And so here we have yet another example of bee
