@@ -197,4 +197,4 @@ Picking crud out. Stellar!
 Wow!
 Couple of newbies?
 Yes, sir! Our first day! We are ready!
-Make your choi
+Make your choic
