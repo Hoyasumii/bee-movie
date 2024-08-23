@@ -2122,4 +2122,4 @@ This.
 
 What happened here?
 
-That is not the hal
+That is not the half
