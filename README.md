@@ -562,4 +562,4 @@ Wait. One of these flowers seems to be on the move.
 
 Say again? You're reporting a moving flower?
 
-Affir
+Affirm
