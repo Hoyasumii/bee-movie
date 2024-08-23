@@ -862,4 +862,4 @@ You do?
 
 Sure.
 
-My parents w
+My parents wa
