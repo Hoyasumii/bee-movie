@@ -1284,4 +1284,4 @@ Open your eyes!
 
 Stick your head out the window!
 
-From NPR News in Washi
+From NPR News in Washin
