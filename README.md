@@ -180,4 +180,4 @@ No one's listening to me!
 Wait till you see the sticks I have.
 I could say anything right now.
 I'm gonna get an ant tattoo!
-Let's ope
+Let's open
