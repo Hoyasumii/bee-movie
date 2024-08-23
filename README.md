@@ -1316,4 +1316,4 @@ Bees hang tight. We're all jammed in.
 
 It's a close community.
 
-Not us, man. We on our own. Every mosquito on his o
+Not us, man. We on our own. Every mosquito on his ow
