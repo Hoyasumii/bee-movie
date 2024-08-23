@@ -1508,4 +1508,4 @@ This is Ken.
 
 Yeah, I remember you. Timberland, size ten and a half. Vibram sole, I believe.
 
-Why does he talk ag
+Why does he talk aga
