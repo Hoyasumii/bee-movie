@@ -2186,4 +2186,4 @@ Vanessa, I just wanna say I'm sorry.
 
 I never meant it to turn out like this.
 
-I know. Me n
+I know. Me ne
