@@ -890,4 +890,4 @@ You all right, ma'am?
 
 Oh, yeah. Fine.
 
-Just havin
+Just having
