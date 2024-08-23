@@ -868,4 +868,4 @@ Really?
 
 My only interest is flowers.
 
-Our new queen wa
+Our new queen was
