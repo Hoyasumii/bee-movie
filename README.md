@@ -2660,4 +2660,4 @@ That's our Barry.
 
 Mom! The bees are back!
 
-If anybody needs to make a call, now's the time. I got a feeling we'l
+If anybody needs to make a call, now's the time. I got a feeling we'll
