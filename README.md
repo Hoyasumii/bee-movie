@@ -940,4 +940,4 @@ Giant, scary humans!
 
 What were they like?
 
-Huge and crazy. They talk craz
+Huge and crazy. They talk crazy
