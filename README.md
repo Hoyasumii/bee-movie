@@ -2454,4 +2454,4 @@ Black and yellow!
 
 Hello!
 
-Left, right, down, hover
+Left, right, down, hover.
