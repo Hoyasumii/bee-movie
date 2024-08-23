@@ -1024,4 +1024,4 @@ Listen to me!
 
 We are not them! We're us.
 
-There's us and there's the
+There's us and there's them
