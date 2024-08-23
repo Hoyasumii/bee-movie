@@ -982,4 +982,4 @@ She's... human.
 
 No, no. That's a bee law. You wouldn't break a bee law.
 
-Her name's Vaness
+Her name's Vanessa
