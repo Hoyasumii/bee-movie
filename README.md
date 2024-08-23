@@ -2082,4 +2082,4 @@ Aborting pollination and nectar detail.
 
 Returning to base.
 
-Adam, you wouldn't believe how muc
+Adam, you wouldn't believe how much
