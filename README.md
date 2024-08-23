@@ -1004,4 +1004,4 @@ This is not over! What was that?
 
 They call it a crumb.
 
-It was so stingin' st
+It was so stingin' str
