@@ -988,4 +988,4 @@ Oh, boy.
 
 She's so nice. And she's a florist!
 
-Oh, no! You're dating a 
+Oh, no! You're dating a h
