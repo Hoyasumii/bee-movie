@@ -940,4 +940,4 @@ Giant, scary humans!
 
 What were they like?
 
-Huge an
+Huge and
