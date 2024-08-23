@@ -90,4 +90,4 @@ Catches that little strand of honey that hangs after you pour it.
 Saves us millions.
 Can anyone work on the Krelman?
 Of course. Most bee jobs are small ones.
-But bees know t
+But bees know th
