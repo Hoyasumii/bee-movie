@@ -2022,4 +2022,4 @@ All right. One at a time.
 
 Barry, who are you wearing?
 
-My sweater is Ralph Lauren, and I ha
+My sweater is Ralph Lauren, and I hav
