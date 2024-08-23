@@ -1830,4 +1830,4 @@ You got the tweezers?
 
 Are you allergic?
 
-Only to losing, so
+Only to losing, son
