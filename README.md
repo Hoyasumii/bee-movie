@@ -1098,4 +1098,4 @@ A girl? Is this why you can't decide?
 
 Bye.
 
-I just hope s
+I just hope sh
