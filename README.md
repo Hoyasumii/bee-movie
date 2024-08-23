@@ -2588,4 +2588,4 @@ Which one?
 
 That flower.
 
-I'm aiming at the flowe
+I'm aiming at the flower
