@@ -2474,4 +2474,4 @@ And now we're not!
 
 So it turns out I cannot fly a plane.
 
-All of you, let's get behind this fellow! Move it 
+All of you, let's get behind this fellow! Move it o
