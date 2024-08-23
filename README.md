@@ -948,4 +948,4 @@ They drive crazy.
 
 Do they try and kill you, like on TV?
 
-Some of them. But some of them don
+Some of them. But some of them don'
