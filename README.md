@@ -532,4 +532,4 @@ Bring it around 30 degrees and hold.
 
 Roses!
 
-30 degrees, ro
+30 degrees, rog
