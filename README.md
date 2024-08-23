@@ -978,4 +978,4 @@ I know it's the hottest thing, with the eight legs and all. I can't get by that 
 
 So who is she?
 
-She's... hu
+She's... hum
