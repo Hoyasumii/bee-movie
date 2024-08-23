@@ -1242,4 +1242,4 @@ What horrible thing has happened here?
 
 These faces, they never knew what hit them. And now
 
-they're on the road to n
+they're on the road to no
