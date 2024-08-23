@@ -818,4 +818,4 @@ Come on!
 
 I'm trying to lose a couple micrograms.
 
-Wher
+Where
