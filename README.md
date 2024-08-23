@@ -508,4 +508,4 @@ OK, ladies,
 
 let's move it out!
 
-Pound those petunias, you striped stem-suck
+Pound those petunias, you striped stem-sucke
