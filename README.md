@@ -2334,4 +2334,4 @@ Barry, these are cut flowers with no water. They'll never make it.
 
 I gotta get up there and talk to them.
 
-Be careful
+Be careful.
