@@ -2706,4 +2706,4 @@ Let it go, Kenny.
 
 When will this nightmare end?!
 
-Let it al
+Let it all
