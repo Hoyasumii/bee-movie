@@ -2590,4 +2590,4 @@ That flower.
 
 I'm aiming at the flower!
 
-That's 
+That's a
