@@ -1843,3 +1843,5 @@ Good friends?
 Yes.
 
 How good? Do you live together?
+
+W
