@@ -2722,4 +2722,4 @@ Thinking bee!
 
 Me?
 
-Hold it. Let's ju
+Hold it. Let's jus
