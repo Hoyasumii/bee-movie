@@ -1622,4 +1622,4 @@ So, Mr. Klauss Vanderhayden of Honey Farms, big company you have.
 
 I suppose so.
 
-I see you also ow
+I see you also own
