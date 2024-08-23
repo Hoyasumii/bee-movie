@@ -2406,4 +2406,4 @@ Wait, Barry!
 
 We're headed into some lightning.
 
-This is Bob Bumble. We have some la
+This is Bob Bumble. We have some lat
