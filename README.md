@@ -2484,4 +2484,4 @@ Don't have to yell.
 
 I'm not yelling! We're in a lot of trouble.
 
-It's very hard to c
+It's very hard to co
