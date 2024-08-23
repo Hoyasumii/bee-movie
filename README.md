@@ -1152,4 +1152,4 @@ Get out of here, you creep!
 
 What was that? A Pic 'N' Save circular?
 
-Yeah, it was. How
+Yeah, it was. How 
