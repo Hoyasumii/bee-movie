@@ -2028,4 +2028,4 @@ What if Montgomery's right?
 
 What do you mean?
 
-We've been living the 
+We've been living the b
