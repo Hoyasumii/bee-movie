@@ -712,4 +712,4 @@ Right. Bye, Vanessa. Thanks.
 
 Vanessa, next week? Yogurt night?
 
-Sure, Ken. You know, whatev
+Sure, Ken. You know, whateve
