@@ -1844,4 +1844,4 @@ Yes.
 
 How good? Do you live together?
 
-Wait a minute... Are you her little... 
+Wait a minute... Are you her little... b
