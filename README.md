@@ -1380,4 +1380,4 @@ There's hundreds of them!
 
 Bee honey.
 
-Our honey is being brazenl
+Our honey is being brazenly
