@@ -1098,4 +1098,4 @@ A girl? Is this why you can't decide?
 
 Bye.
 
-I jus
+I just
