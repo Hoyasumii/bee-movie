@@ -1068,4 +1068,4 @@ Got everything?
 
 All set!
 
-Go ahead. I'll catch up
+Go ahead. I'll catch up.
