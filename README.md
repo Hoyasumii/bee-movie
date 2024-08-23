@@ -2722,4 +2722,4 @@ Thinking bee!
 
 Me?
 
-Hold it. Let's just stop f
+Hold it. Let's just stop fo
