@@ -1510,4 +1510,4 @@ Yeah, I remember you. Timberland, size ten and a half. Vibram sole, I believe.
 
 Why does he talk again?
 
-Listen, you bette
+Listen, you better
