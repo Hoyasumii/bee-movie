@@ -2172,4 +2172,4 @@ I had to open my mouth and talk.
 
 Vanessa?
 
-Vanessa? W
+Vanessa? Wh
