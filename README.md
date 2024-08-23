@@ -52,4 +52,4 @@ Such a hothead.
 I guess he could have just gotten out of the way.
 I love this incorporating an amusement park into our day.
 That's why we don't need vacations.
-Boy, qu
+Boy, qui
