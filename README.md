@@ -2320,4 +2320,4 @@ I know. Just having some fun.
 
 Enjoy your flight.
 
-Then if we're lu
+Then if we're luc
