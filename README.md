@@ -1986,4 +1986,4 @@ It's a bee smoker!
 
 What, this? This harmless little contraption? This couldn't hurt a fly, let alone a bee.
 
-Look at what has happened to bees who ha
+Look at what has happened to bees who hav
