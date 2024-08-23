@@ -492,4 +492,4 @@ You ready for this, hot shot?
 
 Yeah. Yeah, bring it on.
 
-Wind, 
+Wind, c
