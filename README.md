@@ -59,4 +59,4 @@ Bee-men.
 Amen!
 Hallelujah!
 Students, faculty, distinguished bees,
-please welcome De
+please welcome Dea
