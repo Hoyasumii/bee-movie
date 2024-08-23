@@ -1582,4 +1582,4 @@ All right. Case number 4475,
 
 Superior Court of New York,
 
-Barry Bee Benson v. the Honey Industr
+Barry Bee Benson v. the Honey Industry
