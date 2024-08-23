@@ -1060,4 +1060,4 @@ Barry, come out. Your father's talking to you.
 
 Martin, would you talk to him?
 
-Barry, I'm talki
+Barry, I'm talkin
