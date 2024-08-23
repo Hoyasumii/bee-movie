@@ -2176,4 +2176,4 @@ Vanessa? Why are you leaving?
 
 Where are you going?
 
-To the final Tournament of 
+To the final Tournament of R
