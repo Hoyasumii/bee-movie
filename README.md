@@ -696,4 +696,4 @@ I'm just saying all life has value. You don't know what he's capable of feeling.
 
 My brochure!
 
-There you go, litt
+There you go, littl
