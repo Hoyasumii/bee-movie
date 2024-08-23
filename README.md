@@ -40,4 +40,4 @@ Never thought I'd make it.
 Three days grade school, three days high school.
 Those were awkward.
 Three days college. I'm glad I took a day and hitchhiked around The Hive.
-You did come back diffe
+You did come back differ
