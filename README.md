@@ -1292,4 +1292,4 @@ But don't kill no more bugs!
 
 Bee!
 
-Moose blood gu
+Moose blood guy
