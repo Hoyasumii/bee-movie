@@ -2704,4 +2704,4 @@ That bee is living my life!
 
 Let it go, Kenny.
 
-When will this nightmar
+When will this nightmare
