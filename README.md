@@ -692,4 +692,4 @@ Why does his life have less value than yours?
 
 Why does his life have any less value than mine? Is that your statement?
 
-I
+I'
