@@ -1646,4 +1646,4 @@ Bears kill bees!
 
 How'd you like his head crashing through your living room?! Biting into your couch! Spitting out your throw pillows! OK, that's enough. Take him away.
 
-So, Mr. Sting, thank you for b
+So, Mr. Sting, thank you for be
