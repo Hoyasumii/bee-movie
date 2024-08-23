@@ -1994,4 +1994,4 @@ What are we gonna do?
 
 He's playing the species card.
 
-Lad
+Ladi
