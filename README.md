@@ -1,3 +1,3 @@
 BEE Movie
 
-Written by Jerry Seinfeld
+Written by Jerry Seinfeld 
