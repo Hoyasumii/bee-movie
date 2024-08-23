@@ -1334,4 +1334,4 @@ Hey, guys!
 
 Mooseblood!
 
-I knew I'd c
+I knew I'd ca
