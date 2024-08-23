@@ -1118,4 +1118,4 @@ Yeah, OK, I see, I see.
 
 All right, your turn.
 
-TiVo. You can ju
+TiVo. You can jus
