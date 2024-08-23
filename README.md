@@ -2466,4 +2466,4 @@ Beep-beep! Beep-beep!
 
 Barry, what happened?!
 
-Wait, I think 
+Wait, I think w
