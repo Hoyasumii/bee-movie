@@ -2204,4 +2204,4 @@ Barry?
 
 Roses are flowers!
 
-Yes, they are
+Yes, they are.
