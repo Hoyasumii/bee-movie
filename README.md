@@ -2172,4 +2172,4 @@ I had to open my mouth and talk.
 
 Vanessa?
 
-Vanessa? Why are y
+Vanessa? Why are yo
