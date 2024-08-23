@@ -1544,4 +1544,4 @@ Bent stingers, pointless pollination.
 
 Bees must hate those fake things!
 
-Nothing wor
+Nothing wors
