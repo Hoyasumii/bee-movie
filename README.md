@@ -2622,4 +2622,4 @@ Right.
 
 Barry, it worked!
 
-Did you see the 
+Did you see the g
