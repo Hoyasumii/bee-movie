@@ -2560,4 +2560,4 @@ Thinking bee! Thinking bee!
 
 What in the world is on the tarmac?
 
-Get some lig
+Get some ligh
