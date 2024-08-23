@@ -1996,4 +1996,4 @@ He's playing the species card.
 
 Ladies and gentlemen, please, free these bees!
 
-Free the bees! Free the be
+Free the bees! Free the bee
