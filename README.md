@@ -1142,4 +1142,4 @@ Oh, my goodness! Are you OK?
 
 Yeah.
 
-What is wron
+What is wrong
