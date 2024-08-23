@@ -1306,4 +1306,4 @@ Whassup, bee boy?
 
 Hey, Blood.
 
-Just a r
+Just a ro
