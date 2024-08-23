@@ -1822,4 +1822,4 @@ Good idea! You can really see why he's considered one of the best lawyers...
 
 Yeah.
 
-Layton, you've gott
+Layton, you've gotta
