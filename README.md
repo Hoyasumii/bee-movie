@@ -160,4 +160,4 @@ I might be. It all depends on what 0900 means.
 Hey, Honex!
 Dad, you surprised me.
 You decide what you're interested in?
-Well, there's a lot of cho
+Well, there's a lot of choi
