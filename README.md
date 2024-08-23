@@ -1842,4 +1842,4 @@ Good friends?
 
 Yes.
 
-How good? Do you live toget
+How good? Do you live togeth
