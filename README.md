@@ -114,4 +114,4 @@ Wait a second. Check it out.
 Hey, those are Pollen Jocks!
 Wow.
 I've never seen them this close.
-They know what it's like outside The Hi
+They know what it's like outside The Hiv
