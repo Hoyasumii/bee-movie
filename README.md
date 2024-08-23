@@ -218,4 +218,4 @@ Barry!
 All right, we've got the sunflower patch in quadrant nine...
 What happened to you?
 Where are you?
-I'm going ou
+I'm going out
