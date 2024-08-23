@@ -48,3 +48,4 @@ You going to the funeral?
 No, I'm not going.
 Everybody knows, sting someone, you die.
 Don't waste it on a squirrel.
+S
