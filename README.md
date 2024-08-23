@@ -1416,4 +1416,4 @@ I want to do it for all our lives. Nobody works harder than bees!
 
 Dad, I remember you coming home so overworked
 
-your hands were still sti
+your hands were still stir
