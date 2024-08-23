@@ -468,4 +468,4 @@ Thank you.
 
 OK.
 
-You got a rain advisory today, and as yo
+You got a rain advisory today, and as you
