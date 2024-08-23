@@ -168,4 +168,4 @@ You grab that stick, and you just move it around, and you stir it around.
 You get yourself into a rhythm.
 It's a beautiful thing.
 You know, Dad, the more I think about it,
-maybe the honey field just isn't right fo
+maybe the honey field just isn't right for
