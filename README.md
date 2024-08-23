@@ -2716,4 +2716,4 @@ Between you and me,
 
 I was dying to get out of that office.
 
-You have got to sta
+You have got to star
