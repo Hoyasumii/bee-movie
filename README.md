@@ -1671,3 +1671,5 @@ I see from your resume that you're devilishly handsome with a churning inner tur
 I enjoy what I do. Is that a crime?
 
 Not yet it isn't. But is this what it's come to for you? Exploiting tiny, helpless bees so you don't have to rehearse your part and learn your lines, sir?
+
+W
