@@ -2108,4 +2108,4 @@ Now I can't.
 
 I don't understand why they're not happy.
 
-I thought their 
+I thought their l
