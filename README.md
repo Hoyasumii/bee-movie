@@ -1108,4 +1108,4 @@ Up on a float, surrounded by flowers, crowds cheering.
 
 A tournament. Do the roses compete in athletic events?
 
-No. All right, I've got
+No. All right, I've got 
