@@ -128,4 +128,4 @@ Outside The Hive, flying who knows where, doing who knows what.
 You can't just decide to be a Pollen Jock. You have to be bred for that.
 Right.
 Look. That's more pollen than you and I will see in a lifetime.
-It's j
+It's ju
