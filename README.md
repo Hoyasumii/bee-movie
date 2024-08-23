@@ -1978,4 +1978,4 @@ Show me the smoking gun!
 
 Hold it, Your Honor!
 
-You want a smo
+You want a smok
