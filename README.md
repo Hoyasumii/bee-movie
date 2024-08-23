@@ -1038,4 +1038,4 @@ Thinking bee.
 
 Thinking bee! Thinking bee! Thinking bee! Thinking bee!
 
-There he is. He's in the poo
+There he is. He's in the pool
