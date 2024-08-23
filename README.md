@@ -2618,4 +2618,4 @@ Barry, we did it! You taught me how to fly!
 
 Yes. No high-five!
 
-Righ
+Right
