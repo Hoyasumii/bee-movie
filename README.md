@@ -1516,4 +1516,4 @@ But it's our yogurt night!
 
 Bye-bye.
 
-Why is yogurt night so diff
+Why is yogurt night so diffi
