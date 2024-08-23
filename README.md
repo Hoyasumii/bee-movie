@@ -1615,3 +1615,5 @@ Unfortunately, there are some people in this room who think they can take it fro
 I'm hoping that, after this is all over, you'll see how, by taking our honey, you not only take everything we have but everything we are!
 
 I wish he'd dress like that all the time. So nice!
+
+C
