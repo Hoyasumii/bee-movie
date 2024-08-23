@@ -1078,4 +1078,4 @@ Vanessa!
 
 We're still here.
 
-I told you not to yel
+I told you not to yell
