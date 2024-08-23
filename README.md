@@ -2002,4 +2002,4 @@ The court finds in favor of the bees!
 
 Vanessa, we won!
 
-I knew you could do it! High-fiv
+I knew you could do it! High-five
