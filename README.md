@@ -1366,4 +1366,4 @@ What's going on? Are you OK?
 
 Yeah. It doesn't last too long.
 
-Do you know you're in a f
+Do you know you're in a fa
