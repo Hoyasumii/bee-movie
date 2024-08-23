@@ -1936,4 +1936,4 @@ Bees don't smoke.
 
 Right. Bees don't smoke.
 
-Bees don't sm
+Bees don't smo
