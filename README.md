@@ -1122,4 +1122,4 @@ TiVo. You can just freeze live TV? That's insane!
 
 You don't have that?
 
-We have Hivo, bu
+We have Hivo, but
