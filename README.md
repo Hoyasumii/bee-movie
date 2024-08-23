@@ -2082,4 +2082,4 @@ Aborting pollination and nectar detail.
 
 Returning to base.
 
-Adam, you wouldn't be
+Adam, you wouldn't bel
