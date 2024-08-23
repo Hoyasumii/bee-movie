@@ -2254,4 +2254,4 @@ Repollination!
 
 Across the nation!
 
-Tournament of Ros
+Tournament of Rose
