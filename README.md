@@ -2438,4 +2438,4 @@ Got it.
 
 Stand by.
 
-We're go
+We're goi
