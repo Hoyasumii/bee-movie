@@ -1148,4 +1148,4 @@ It's a bug.
 
 He's not bothering anybody.
 
-Get out of he
+Get out of her
