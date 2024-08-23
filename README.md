@@ -2166,4 +2166,4 @@ That just kills you twice.
 
 Right, right.
 
-Listen, Barry... s
+Listen, Barry... so
