@@ -1146,4 +1146,4 @@ What is wrong with you?!
 
 It's a bug.
 
-He's not bothe
+He's not bother
