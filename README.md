@@ -2510,4 +2510,4 @@ You snap out of it!
 
 Hold it!
 
-Why? Come 
+Why? Come o
