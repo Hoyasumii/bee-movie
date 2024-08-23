@@ -1971,3 +1971,5 @@ Mr. Flayman, I'm afraid I'm going to have to consider Mr. Montgomery's motion.
 But you can't! We have a terrific case.
 
 Where is your proof?
+
+W
