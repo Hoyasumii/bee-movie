@@ -1846,4 +1846,4 @@ How good? Do you live together?
 
 Wait a minute... Are you her little... bedbug?
 
-I've seen a bee documentary or two. From what I understand, doesn't your 
+I've seen a bee documentary or two. From what I understand, doesn't your q
