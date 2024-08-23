@@ -1880,4 +1880,4 @@ Adam, stay with me.
 
 I can't feel my legs.
 
-What Angel of Mercy w
+What Angel of Mercy wi
