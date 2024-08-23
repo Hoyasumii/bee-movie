@@ -932,4 +932,4 @@ Sounds amazing.
 
 It was amazing!
 
-It was the scarie
+It was the scaries
