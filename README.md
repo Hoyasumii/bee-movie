@@ -1690,4 +1690,4 @@ Say it!
 
 Mr. Liotta, please sit down!
 
-I think it was awfully nice of t
+I think it was awfully nice of th
