@@ -227,4 +227,4 @@ You're gonna die! You're crazy! Hello?
 Another call coming in.
 If anyone's feeling brave, there's a Korean deli on 83rd that gets their roses today.
 Hey, guys.
-Look at t
+Look at th
