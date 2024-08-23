@@ -842,4 +842,4 @@ And he says, "Watermelon?
 
 I thought you said Guatemalan.
 
-Why would I marry a watermel
+Why would I marry a watermelo
