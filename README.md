@@ -1838,4 +1838,4 @@ What exactly is your relationship to that woman?
 
 We're friends.
 
-Good fr
+Good fri
