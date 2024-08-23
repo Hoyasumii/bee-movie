@@ -1758,4 +1758,4 @@ Remember what Van said, why is your life more valuable than mine?
 
 Funny, I just can't seem to recall that! I think something stinks in here!
 
-I love th
+I love the
