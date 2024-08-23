@@ -1492,4 +1492,4 @@ I'm not gonna take advantage of that?
 
 Quiet, please.
 
-Actual work goin
+Actual work going
