@@ -2346,4 +2346,4 @@ Nothing.
 
 Bee!
 
-Don't freak out! My entire specie
+Don't freak out! My entire species
