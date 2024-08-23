@@ -1346,4 +1346,4 @@ A bee's got a brain the size of a pinhead.
 
 They are pinheads!
 
-Pinhea
+Pinhead
