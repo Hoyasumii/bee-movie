@@ -1134,4 +1134,4 @@ We try not to sting. It's usually fatal for us.
 
 So you have to watch your temper.
 
-Very caref
+Very carefu
