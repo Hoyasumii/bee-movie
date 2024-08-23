@@ -185,4 +185,4 @@ Maybe I'll pierce my thorax. Shave my antennae. Shack up with a grasshopper. Get
 I'm so proud.
 We're starting work today!
 Today's the day.
-Come on! All the good jobs will be gon
+Come on! All the good jobs will be gone
