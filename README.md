@@ -1486,4 +1486,4 @@ In tennis, you attack at the point of weakness!
 
 It was my grandmother, Ken. She's 81.
 
-Honey, her backhan
+Honey, her backhand
