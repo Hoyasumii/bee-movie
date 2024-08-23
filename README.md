@@ -876,4 +876,4 @@ You're in Sheep Meadow!
 
 Yes! I'm right off the Turtle Pond!
 
-No way! I kno
+No way! I know
