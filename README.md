@@ -54,4 +54,4 @@ I love this incorporating an amusement park into our day.
 That's why we don't need vacations.
 Boy, quite a bit of pomp under the circumstances.
 Well, Adam, today we are men.
-We 
+We a
