@@ -2726,4 +2726,4 @@ Hold it. Let's just stop for a second. Hold it.
 
 I'm sorry. I'm sorry, everyone. Can we stop here?
 
-I'm not making a major life decis
+I'm not making a major life decisi
