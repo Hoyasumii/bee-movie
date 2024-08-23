@@ -2168,4 +2168,4 @@ Right, right.
 
 Listen, Barry... sorry, but I gotta get going.
 
-I had to ope
+I had to open
