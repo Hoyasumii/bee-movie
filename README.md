@@ -1452,4 +1452,4 @@ A tri-county bee, Barry Benson, intends to sue the human race for stealing our h
 
 Tomorrow night on Bee Larry King, we'll have three former queens here in our studio, discussing their new book, classy Ladies, out this week on Hexagon.
 
-Tonight we're ta
+Tonight we're tal
