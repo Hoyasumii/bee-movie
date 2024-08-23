@@ -2376,4 +2376,4 @@ This is JFK control tower, Flight 356. What's your status?
 
 This is Vanessa Bloome. I'm a florist from New York.
 
-Whe
+Wher
