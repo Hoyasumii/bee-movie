@@ -1288,4 +1288,4 @@ From NPR News in Washington,
 
 I'm Carl Kasell.
 
-But don't kill no m
+But don't kill no mo
