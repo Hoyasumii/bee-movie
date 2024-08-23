@@ -674,4 +674,4 @@ When I leave a job interview, they're flabbergasted, can't believe what I say.
 
 There's the sun. Maybe that's a way out.
 
-I don't remember the sun havi
+I don't remember the sun havin
