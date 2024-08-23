@@ -1542,4 +1542,4 @@ Yeah, me too.
 
 Bent stingers, pointless pollination.
 
-Bees must hate those fake thing
+Bees must hate those fake things
