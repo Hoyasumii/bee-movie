@@ -92,4 +92,4 @@ Can anyone work on the Krelman?
 Of course. Most bee jobs are small ones.
 But bees know that every small job, if it's done well, means a lot.
 But choose carefully because you'll stay in the job you pick for the rest of your life.
-The same job the rest of your life? I d
+The same job the rest of your life? I di
