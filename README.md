@@ -974,4 +974,4 @@ Spider?
 
 I'm not attracted to spiders.
 
-I know it's the hottes
+I know it's the hottest
