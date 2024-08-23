@@ -838,4 +838,4 @@ He runs up the steps into the church.
 
 The wedding is on.
 
-And he s
+And he sa
