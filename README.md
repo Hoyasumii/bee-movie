@@ -1752,4 +1752,4 @@ Italian Vogue.
 
 Mamma mia, that's a lot of pages.
 
-A lot of 
+A lot of a
