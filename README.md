@@ -1130,4 +1130,4 @@ Dumb bees!
 
 You must want to sting all those jerks.
 
-We t
+We tr
