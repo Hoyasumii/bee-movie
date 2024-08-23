@@ -1744,4 +1744,4 @@ Yeah, you do that.
 
 Look at that.
 
-You know, I've just 
+You know, I've just a
