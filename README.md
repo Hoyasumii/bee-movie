@@ -1724,4 +1724,4 @@ So I hear you're quite a tennis player. I'm not much for the game myself. The ba
 
 That's where I usually sit. Right... there.
 
-Ken, Barry was looking at your resume, and he agreed wit
+Ken, Barry was looking at your resume, and he agreed with
