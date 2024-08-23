@@ -1802,4 +1802,4 @@ My nerves are fried from riding on this emotional roller coaster!
 
 Goodbye, Ken.
 
-And for your information, I prefer sugar-free, artificial sweet
+And for your information, I prefer sugar-free, artificial sweete
