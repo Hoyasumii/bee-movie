@@ -1128,4 +1128,4 @@ Oh, my.
 
 Dumb bees!
 
-You must want to st
+You must want to sti
