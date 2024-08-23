@@ -646,4 +646,4 @@ I gotta get home.
 
 Can't fly in rain. Can't fly in rain. Can't fly in rain.
 
-Mayday! Mayday! Bee g
+Mayday! Mayday! Bee go
