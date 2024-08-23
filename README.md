@@ -1460,4 +1460,4 @@ Bees have never been afraid to change the world.
 
 What about Bee Oolumbus? Bee Gandhi? Bejesus?
 
-Where I'm from, we'd never sue human
+Where I'm from, we'd never sue humans
