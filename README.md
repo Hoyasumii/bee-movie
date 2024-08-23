@@ -1784,4 +1784,4 @@ Poo water!
 
 That bowl is gnarly. Except for those dirty yellow rings!
 
-Kenneth! What are yo
+Kenneth! What are you
