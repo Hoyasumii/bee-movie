@@ -1648,4 +1648,4 @@ How'd you like his head crashing through your living room?! Biting into your cou
 
 So, Mr. Sting, thank you for being here. Your name intrigues me. Where have I heard it before?
 
-I wa
+I was
