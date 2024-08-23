@@ -786,4 +786,4 @@ That's very funny.
 
 Yeah.
 
-Bees are funny
+Bees are funny.
