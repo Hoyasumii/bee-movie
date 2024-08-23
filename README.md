@@ -846,4 +846,4 @@ Why would I marry a watermelon?"
 
 Is that a bee joke?
 
-That's the kind o
+That's the kind of
