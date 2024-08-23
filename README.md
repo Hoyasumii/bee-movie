@@ -1578,4 +1578,4 @@ You boys work on this?
 
 All rise! The Honorable Judge Bumbleton presiding.
 
-All right. Case numbe
+All right. Case number
