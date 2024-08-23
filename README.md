@@ -1526,4 +1526,4 @@ Frosting...
 
 How many sugars?
 
-Just one. I try not to use the competi
+Just one. I try not to use the competit
