@@ -80,4 +80,4 @@ She's my cousin!
 She is?
 Yes, we're all cousins.
 Right. You're right.
-At Honex, we constantly strive to improve every aspect of bee ex
+At Honex, we constantly strive to improve every aspect of bee exi
