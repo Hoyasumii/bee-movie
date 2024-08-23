@@ -2350,4 +2350,4 @@ Don't freak out! My entire species...
 
 What are you doing?
 
-Wait a minu
+Wait a minut
