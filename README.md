@@ -1847,3 +1847,5 @@ How good? Do you live together?
 Wait a minute... Are you her little... bedbug?
 
 I've seen a bee documentary or two. From what I understand, doesn't your queen give birth to all the bee children?
+
+Y
