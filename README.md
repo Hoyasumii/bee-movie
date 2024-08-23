@@ -2256,4 +2256,4 @@ Across the nation!
 
 Tournament of Roses, Pasadena, California.
 
-The
+They
