@@ -2158,4 +2158,4 @@ I know this is also partly my fault.
 
 How about a suicide pact?
 
-How do w
+How do we
