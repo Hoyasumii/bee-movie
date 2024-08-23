@@ -2668,4 +2668,4 @@ Would you like some honey with that?
 
 It is bee-approved. Don't forget these.
 
-Milk, cream, cheese, it's all me.  And I don't see a nick
+Milk, cream, cheese, it's all me.  And I don't see a nicke
