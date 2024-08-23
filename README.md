@@ -1178,4 +1178,4 @@ You don't have enough food of your own?
 
 Well, yes.
 
-How do you g
+How do you ge
