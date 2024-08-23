@@ -642,4 +642,4 @@ What are you doing?!
 
 Wow... the tension level out here is unbelievable.
 
-I gotta get h
+I gotta get ho
