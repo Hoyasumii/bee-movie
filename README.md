@@ -1338,4 +1338,4 @@ I knew I'd catch y'all down here.
 
 Did you bring your crazy straw?
 
-We throw it in jars, slap a label on it, and it'
+We throw it in jars, slap a label on it, and it's
