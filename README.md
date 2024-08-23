@@ -1540,4 +1540,4 @@ Oh, those just get me psychotic!
 
 Yeah, me too.
 
-Bent stingers, pointless p
+Bent stingers, pointless po
