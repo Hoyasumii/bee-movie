@@ -718,4 +718,4 @@ You could put carob chips on there.
 
 Bye.
 
-Supposed to be less calorie
+Supposed to be less calories
