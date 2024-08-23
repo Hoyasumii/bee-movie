@@ -1710,4 +1710,4 @@ I didn't think you were coming.
 
 No, I was just late I tried to call, but... the battery.
 
-I didn't want all this to go to wast
+I didn't want all this to go to waste
