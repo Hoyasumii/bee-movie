@@ -1698,4 +1698,4 @@ I'm a florist.
 
 Right. Well, here's to a great team.
 
-To a g
+To a gr
