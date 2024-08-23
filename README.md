@@ -222,4 +222,4 @@ I'm going out.
 Out? Out where?
 Out there.
 Oh, no!
-I have to, befor
+I have to, before
