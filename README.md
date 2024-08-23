@@ -1720,4 +1720,4 @@ There's a little left. I could heat it up.
 
 Yeah, heat it up, sure, whatever.
 
-So I hear you're q
+So I hear you're qu
