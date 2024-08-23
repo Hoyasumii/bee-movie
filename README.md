@@ -2506,4 +2506,4 @@ You snap out of it!
 
 You snap out of it!
 
-You snap out
+You snap out 
