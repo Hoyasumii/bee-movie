@@ -1008,4 +1008,4 @@ It was so stingin' stripey!
 
 And that's not what they eat.
 
-Tha
+That
