@@ -2232,4 +2232,4 @@ Actually, it's completely closed down.
 
 I thought maybe you were remodeling.
 
-But I have another idea, and it's greater than 
+But I have another idea, and it's greater than m
