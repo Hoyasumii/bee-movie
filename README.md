@@ -2166,4 +2166,4 @@ That just kills you twice.
 
 Right, right.
 
-Listen, Barry... sorry, but I gotta get goin
+Listen, Barry... sorry, but I gotta get going
