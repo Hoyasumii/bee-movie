@@ -500,4 +500,4 @@ Nectar pack, check.
 
 Wings, check.
 
-Stinger, 
+Stinger, c
