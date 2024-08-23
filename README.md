@@ -1376,4 +1376,4 @@ What is this?
 
 Oh, no!
 
-There's hundreds of th
+There's hundreds of the
