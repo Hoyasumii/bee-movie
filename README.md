@@ -1716,4 +1716,4 @@ so I called Barry. Luckily, he was free.
 
 Oh, that was lucky.
 
-There's a little lef
+There's a little left
