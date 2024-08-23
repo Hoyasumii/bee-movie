@@ -2400,4 +2400,4 @@ Why not? Isn't John Travolta a pilot?
 
 Yes.
 
-How hard co
+How hard cou
