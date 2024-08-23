@@ -121,4 +121,4 @@ Hi, Jocks!
 You guys did great!
 You're monsters!
 You're sky freaks! I love it! I love it!
-I wonder where they we
+I wonder where they wer
