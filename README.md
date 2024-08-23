@@ -1827,3 +1827,5 @@ Layton, you've gotta weave some magic with this jury, or it's gonna be all over.
 Don't worry. The only thing I have to do to turn this jury around is to remind them of what they don't like about bees.
 
 You got the tweezers?
+
+A
