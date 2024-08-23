@@ -1436,4 +1436,4 @@ No.
 
 Up the nose? That's a killer.
 
-There's only one plac
+There's only one place
