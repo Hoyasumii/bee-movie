@@ -2270,4 +2270,4 @@ Sorry, ma'am. Nice brooch.
 
 Thank you. It was a gift.
 
-Once inside, we just pick t
+Once inside, we just pick th
