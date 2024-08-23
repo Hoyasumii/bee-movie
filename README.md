@@ -1022,4 +1022,4 @@ Sit down!
 
 Listen to me!
 
-We are not the
+We are not them
