@@ -1078,4 +1078,4 @@ Vanessa!
 
 We're still here.
 
-I tol
+I told
