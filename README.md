@@ -1926,4 +1926,4 @@ Adam, they check in, but they don't check out!
 
 Oh, my.
 
-Could you get a n
+Could you get a nu
