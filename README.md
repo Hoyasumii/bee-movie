@@ -2178,4 +2178,4 @@ Where are you going?
 
 To the final Tournament of Roses parade in Pasadena.
 
-T
+Th
