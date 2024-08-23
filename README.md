@@ -578,4 +578,4 @@ Yeah, fuzzy.
 
 Chemical-y.
 
-Careful, guys. It's a little grabby
+Careful, guys. It's a little grabby.
