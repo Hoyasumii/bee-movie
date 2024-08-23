@@ -164,4 +164,4 @@ Well, there's a lot of choices.
 But you only get one.
 Do you ever get bored doing the same job every day?
 Son, let me tell you about stirring.
-You grab that stick, and you just move it around, an
+You grab that stick, and you just move it around, and
