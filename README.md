@@ -1450,4 +1450,4 @@ And I'm Jeanette Ohung.
 
 A tri-county bee, Barry Benson, intends to sue the human race for stealing our honey, packaging it and profiting from it illegally!
 
-Tomorrow night on Bee Larry King, we'll have three former queens here in our studio, discussing their new book, cl
+Tomorrow night on Bee Larry King, we'll have three former queens here in our studio, discussing their new book, cla
