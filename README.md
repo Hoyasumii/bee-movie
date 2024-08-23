@@ -1932,4 +1932,4 @@ Why?
 
 The smoke.
 
-Bees don't smoke
+Bees don't smoke.
