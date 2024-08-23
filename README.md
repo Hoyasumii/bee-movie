@@ -1823,3 +1823,5 @@ Good idea! You can really see why he's considered one of the best lawyers...
 Yeah.
 
 Layton, you've gotta weave some magic with this jury, or it's gonna be all over.
+
+D
