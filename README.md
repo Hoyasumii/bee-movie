@@ -1214,4 +1214,4 @@ You're busted, box boy!
 
 I knew I heard something.
 
-So you can t
+So you can ta
