@@ -2664,4 +2664,4 @@ If anybody needs to make a call, now's the time. I got a feeling we'll be workin
 
 Here's your change. Have a great afternoon! Can I help who's next?
 
-Would you like some
+Would you like some 
