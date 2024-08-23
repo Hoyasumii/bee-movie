@@ -1824,4 +1824,4 @@ Yeah.
 
 Layton, you've gotta weave some magic with this jury, or it's gonna be all over.
 
-Don't worry. The only thing I have to do to turn this 
+Don't worry. The only thing I have to do to turn this j
