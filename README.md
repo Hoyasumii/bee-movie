@@ -1066,4 +1066,4 @@ You coming?
 
 Got everything?
 
-All s
+All se
