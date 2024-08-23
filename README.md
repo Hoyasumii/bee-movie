@@ -946,4 +946,4 @@ They eat crazy giant things.
 
 They drive crazy.
 
-Do they try and ki
+Do they try and kil
