@@ -2700,4 +2700,4 @@ All right, scramble, jocks! It's time to fly.
 
 Thank you, Barry!
 
-Th
+Tha
