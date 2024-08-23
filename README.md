@@ -490,4 +490,4 @@ Hello!
 
 You ready for this, hot shot?
 
-Yeah. Yeah, br
+Yeah. Yeah, bri
