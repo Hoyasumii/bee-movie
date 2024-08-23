@@ -518,4 +518,4 @@ I can't believe I'm out!
 
 So blue.
 
-I fee
+I feel
