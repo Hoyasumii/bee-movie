@@ -1576,4 +1576,4 @@ Well, if it isn't the bee team.
 
 You boys work on this?
 
-All ris
+All rise
