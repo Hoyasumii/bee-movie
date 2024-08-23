@@ -2614,4 +2614,4 @@ Now drop it in! Drop it in, woman!
 
 Come on, already.
 
-Barry, we did it! You
+Barry, we did it! You 
