@@ -822,4 +822,4 @@ Where?
 
 These stripes don't help.
 
-You lo
+You loo
