@@ -1378,4 +1378,4 @@ Oh, no!
 
 There's hundreds of them!
 
-Bee hone
+Bee honey
