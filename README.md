@@ -1490,4 +1490,4 @@ Honey, her backhand's a joke!
 
 I'm not gonna take advantage of that?
 
-Quiet, plea
+Quiet, pleas
