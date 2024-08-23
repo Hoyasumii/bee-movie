@@ -2724,4 +2724,4 @@ Me?
 
 Hold it. Let's just stop for a second. Hold it.
 
-I'm sorry. I'm sorry, everyon
+I'm sorry. I'm sorry, everyone
