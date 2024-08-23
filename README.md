@@ -670,4 +670,4 @@ Nah, I don't go for that... kind of stuff.
 
 No wonder we shouldn't talk to them. They're out of their minds.
 
-When I leave 
+When I leave a
