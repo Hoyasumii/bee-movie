@@ -166,4 +166,4 @@ Do you ever get bored doing the same job every day?
 Son, let me tell you about stirring.
 You grab that stick, and you just move it around, and you stir it around.
 You get yourself into a rhythm.
-It's a 
+It's a b
