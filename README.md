@@ -1258,4 +1258,4 @@ I'm going to Tacoma.
 
 And you?
 
-He really is de
+He really is dea
