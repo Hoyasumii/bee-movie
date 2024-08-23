@@ -38,4 +38,4 @@ Is that fuzz gel?
 A little. Special day, graduation.
 Never thought I'd make it.
 Three days grade school, three days high school.
-Those were awkw
+Those were awkwa
