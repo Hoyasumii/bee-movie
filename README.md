@@ -1550,4 +1550,4 @@ Maybe this could make up for it a little bit.
 
 This lawsuit's a pretty big deal.
 
-I g
+I gu
