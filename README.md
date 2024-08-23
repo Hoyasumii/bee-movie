@@ -526,4 +526,4 @@ Wow!
 
 Flowers!
 
-This is Blue Leader, We have rose
+This is Blue Leader, We have roses
