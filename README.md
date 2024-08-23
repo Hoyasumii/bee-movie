@@ -2174,4 +2174,4 @@ Vanessa?
 
 Vanessa? Why are you leaving?
 
-Where ar
+Where are
