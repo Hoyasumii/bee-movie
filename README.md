@@ -2286,4 +2286,4 @@ I believe I'm the pea.
 
 The pea?
 
-It goes under the mattres
+It goes under the mattress
