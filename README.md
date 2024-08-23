@@ -2438,4 +2438,4 @@ Got it.
 
 Stand by.
 
-We're going liv
+We're going live
