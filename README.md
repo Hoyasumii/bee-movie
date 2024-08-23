@@ -2374,4 +2374,4 @@ No one's flying the plane!
 
 This is JFK control tower, Flight 356. What's your status?
 
-This is Vanessa Bloome. I'm a florist from New York
+This is Vanessa Bloome. I'm a florist from New York.
