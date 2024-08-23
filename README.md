@@ -2230,4 +2230,4 @@ I've ruined the planet. I wanted to help you with the flower shop. I've made it 
 
 Actually, it's completely closed down.
 
-I thought maybe you wer
+I thought maybe you were
