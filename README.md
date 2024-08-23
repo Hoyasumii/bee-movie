@@ -138,4 +138,4 @@ Look at these two.
 Couple of Hive Harrys.
 Let's have fun with them.
 It must be dangerous being a Pollen Jock.
-Yeah. Once a bear pi
+Yeah. Once a bear pin
