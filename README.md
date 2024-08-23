@@ -106,4 +106,4 @@ I'm relieved. Now we only have to make one decision in life.
 But, Adam, how could they never have told us that?
 Why would you question anything? We're bees.
 We're the most perfectly functioning society on Earth.
-You ever think maybe things wor
+You ever think maybe things work
