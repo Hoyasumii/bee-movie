@@ -1478,4 +1478,4 @@ Next week...
 
 Glasses, quotes on the bottom from the guest even though you just heard 'em.
 
-Bear Week next week! They're scary, hairy a
+Bear Week next week! They're scary, hairy an
