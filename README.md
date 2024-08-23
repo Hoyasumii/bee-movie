@@ -508,4 +508,4 @@ OK, ladies,
 
 let's move it out!
 
-Pound those petunias, you striped 
+Pound those petunias, you striped s
