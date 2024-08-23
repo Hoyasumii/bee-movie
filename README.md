@@ -1813,3 +1813,5 @@ I always felt there was some kind of barrier between Ken and me. I couldn't over
 Oh, well.
 
 Are you OK for the trial?
+
+I
