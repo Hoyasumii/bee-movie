@@ -50,4 +50,4 @@ Everybody knows, sting someone, you die.
 Don't waste it on a squirrel.
 Such a hothead.
 I guess he could have just gotten out of the way.
-I lov
+I love
