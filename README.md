@@ -536,4 +536,4 @@ Roses!
 
 Stand to the side, kid.
 
-It's go
+It's got
