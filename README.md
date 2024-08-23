@@ -1324,4 +1324,4 @@ You a mosquito, you in trouble. Nobody likes us. They just smack. See a mosquito
 
 At least you're out in the world. You must meet girls.
 
-Mosquito girls try to trade up, get
+Mosquito girls try to trade up, get 
