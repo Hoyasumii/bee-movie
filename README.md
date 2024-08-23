@@ -195,4 +195,4 @@ Step to the side.
 What'd you get?
 Picking crud out. Stellar!
 Wow!
-Couple of newbie
+Couple of newbies
