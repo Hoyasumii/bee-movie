@@ -1164,4 +1164,4 @@ I'll bet.
 
 What in the name of Mighty Hercules is this?
 
-How did this get here? cute Bee, Golden Blo
+How did this get here? cute Bee, Golden Blos
