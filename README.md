@@ -820,4 +820,4 @@ I'm trying to lose a couple micrograms.
 
 Where?
 
-These str
+These stri
