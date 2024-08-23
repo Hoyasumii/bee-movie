@@ -1315,3 +1315,5 @@ I assume wherever this truck goes is where they're getting it. I mean, that hone
 Bees hang tight. We're all jammed in.
 
 It's a close community.
+
+N
