@@ -786,4 +786,4 @@ That's very funny.
 
 Yeah.
 
-Bees are funny. If we didn't laugh, we'd cry with what we hav
+Bees are funny. If we didn't laugh, we'd cry with what we have
