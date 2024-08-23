@@ -852,4 +852,4 @@ Yeah, different.
 
 So, what are you gonna do, Barry?
 
-About work? I don't kno
+About work? I don't know
