@@ -1584,4 +1584,4 @@ Superior Court of New York,
 
 Barry Bee Benson v. the Honey Industry is now in session.
 
-Mr. Montgomery, you're 
+Mr. Montgomery, you're r
