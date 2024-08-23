@@ -1274,4 +1274,4 @@ Triple blade?
 
 Jump on! It's your only chance, bee!
 
-Why d
+Why do
