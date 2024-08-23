@@ -930,4 +930,4 @@ OK, Dave, pull the chute.
 
 Sounds amazing.
 
-It wa
+It was
