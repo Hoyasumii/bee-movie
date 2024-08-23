@@ -488,4 +488,4 @@ Black and yellow!
 
 Hello!
 
-You ready for this, hot shot
+You ready for this, hot shot?
