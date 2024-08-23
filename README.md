@@ -1772,4 +1772,4 @@ This is pathetic!
 
 I've got issues!
 
-Well, well, well, a r
+Well, well, well, a ro
