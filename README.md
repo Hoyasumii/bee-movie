@@ -141,4 +141,4 @@ It must be dangerous being a Pollen Jock.
 Yeah. Once a bear pinned me against a mushroom!
 He had a paw on my throat, and with the other, he was slapping me!
 Oh, my!
-I never thought I'd
+I never thought I'd 
