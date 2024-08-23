@@ -746,4 +746,4 @@ Hi!
 
 I'm sorry. You're talking.
 
-Yes, 
+Yes, I
