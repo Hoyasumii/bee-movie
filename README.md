@@ -1142,4 +1142,4 @@ Oh, my goodness! Are you OK?
 
 Yeah.
 
-What is wrong w
+What is wrong wi
