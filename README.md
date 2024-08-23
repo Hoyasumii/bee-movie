@@ -174,4 +174,4 @@ That's a bad job for a guy with a stinger.
 Janet, your son's not sure he wants to go into honey!
 Barry, you are so funny sometimes.
 I'm not trying to be funny.
-You're not funny! You'r
+You're not funny! You're
