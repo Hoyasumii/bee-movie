@@ -1650,4 +1650,4 @@ So, Mr. Sting, thank you for being here. Your name intrigues me. Where have I he
 
 I was with a band called The Police.
 
-But you've never be
+But you've never bee
