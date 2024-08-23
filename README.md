@@ -1084,4 +1084,4 @@ He doesn't respond to yelling!
 
 Then why yell at me?
 
-Because you don't liste
+Because you don't listen
