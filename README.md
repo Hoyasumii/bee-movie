@@ -1536,4 +1536,4 @@ Those are great, if you're three.
 
 And artificial flowers.
 
-Oh, those just get me psycho
+Oh, those just get me psychot
