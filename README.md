@@ -1290,4 +1290,4 @@ I'm Carl Kasell.
 
 But don't kill no more bugs!
 
-Bee
+Bee!
