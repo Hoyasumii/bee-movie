@@ -2044,4 +2044,4 @@ Wait for my signal. Take him out.
 
 He'll have nauseous for a few hours, then he'll be fine.
 
-And
+And 
