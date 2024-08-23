@@ -1196,4 +1196,4 @@ Just what?!
 
 Bees don't know about this! This is stealing! A lot of stealing!
 
-You've taken our homes, schools,ho
+You've taken our homes, schools,hos
