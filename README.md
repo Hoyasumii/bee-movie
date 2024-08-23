@@ -126,4 +126,4 @@ I don't know.
 Their day's not planned.
 Outside The Hive, flying who knows where, doing who knows what.
 You can't just decide to be a Pollen Jock. You have to be bred for that.
-Ri
+Rig
