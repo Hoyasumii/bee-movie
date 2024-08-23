@@ -1288,4 +1288,4 @@ From NPR News in Washington,
 
 I'm Carl Kasell.
 
-But don't kill no more b
+But don't kill no more bu
