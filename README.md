@@ -65,4 +65,4 @@ That concludes our ceremonies And begins your career at Honex Industries!
 Will we pick our job today?
 I heard it's just orientation.
 Heads up! Here we go.
-Keep your hands and anten
+Keep your hands and antenn
