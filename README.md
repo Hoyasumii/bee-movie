@@ -60,4 +60,4 @@ Amen!
 Hallelujah!
 Students, faculty, distinguished bees,
 please welcome Dean Buzzwell.
-Welcome, New Hive City graduating clas
+Welcome, New Hive City graduating class
