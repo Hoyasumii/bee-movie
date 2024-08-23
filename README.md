@@ -1302,4 +1302,4 @@ Like tiny screaming.
 
 Turn off the radio.
 
-Whassup, bee bo
+Whassup, bee boy
