@@ -1008,4 +1008,4 @@ It was so stingin' stripey!
 
 And that's not what they eat.
 
-That's what falls off wha
+That's what falls off what
