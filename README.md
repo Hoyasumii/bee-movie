@@ -988,4 +988,4 @@ Oh, boy.
 
 She's so nice. And she's a florist!
 
-Oh, no! Y
+Oh, no! Yo
