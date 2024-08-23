@@ -470,4 +470,4 @@ OK.
 
 You got a rain advisory today, and as you all know, bees cannot fly in rain.
 
-So be 
+So be c
