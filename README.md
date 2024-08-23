@@ -2284,4 +2284,4 @@ What are you?
 
 I believe I'm the pea.
 
-The pea
+The pea?
