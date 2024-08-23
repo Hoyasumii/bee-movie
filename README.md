@@ -910,4 +910,4 @@ Thanks!
 
 Yeah.
 
-All r
+All ri
