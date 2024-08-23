@@ -1594,4 +1594,4 @@ I'm kidding. Yes, Your Honor, we're ready to proceed.
 
 Mr. Montgomery, your opening statement, please.
 
-Ladies and gentlemen of the jury, my grandmother was a simple woman. Born on a farm, she believed it was man
+Ladies and gentlemen of the jury, my grandmother was a simple woman. Born on a farm, she believed it was man'
