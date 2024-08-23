@@ -868,4 +868,4 @@ Really?
 
 My only interest is flowers.
 
-Our new queen was ju
+Our new queen was jus
