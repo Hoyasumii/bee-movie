@@ -1578,4 +1578,4 @@ You boys work on this?
 
 All rise! The Honorable Judge Bumbleton presiding.
 
-All right. Cas
+All right. Case
