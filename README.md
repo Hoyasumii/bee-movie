@@ -1608,4 +1608,4 @@ They could be using laser beams! Robotics! Ventriloquism! Cloning! For all we kn
 
 Mr. Benson?
 
-Ladies and gentlemen, there's no trickery here. I'm just an ordinary bee. Honey's
+Ladies and gentlemen, there's no trickery here. I'm just an ordinary bee. Honey's 
