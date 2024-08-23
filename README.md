@@ -942,4 +942,4 @@ What were they like?
 
 Huge and crazy. They talk crazy.
 
-They eat crazy giant t
+They eat crazy giant th
