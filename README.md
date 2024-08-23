@@ -992,4 +992,4 @@ Oh, no! You're dating a human florist!
 
 We're not dating.
 
-You're flying outside The Hive, talking to hum
+You're flying outside The Hive, talking to huma
