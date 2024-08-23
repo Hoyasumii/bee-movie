@@ -2620,4 +2620,4 @@ Yes. No high-five!
 
 Right.
 
-Barry, it worke
+Barry, it worked
