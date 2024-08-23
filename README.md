@@ -2454,4 +2454,4 @@ Black and yellow!
 
 Hello!
 
-Left, rig
+Left, righ
