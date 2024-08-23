@@ -1612,4 +1612,4 @@ Ladies and gentlemen, there's no trickery here. I'm just an ordinary bee. Honey'
 
 Unfortunately, there are some people in this room who think they can take it from us 'cause we're the little guys!
 
-I'm hoping that, after this is all over, you'll see how, by taking our honey, you not only take everything we have but everythi
+I'm hoping that, after this is all over, you'll see how, by taking our honey, you not only take everything we have but everythin
