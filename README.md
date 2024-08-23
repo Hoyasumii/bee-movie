@@ -1506,4 +1506,4 @@ Hello, bee.
 
 This is Ken.
 
-Yeah, I remember you. T
+Yeah, I remember you. Ti
