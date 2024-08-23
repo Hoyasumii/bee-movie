@@ -2580,4 +2580,4 @@ Land on that flower!
 
 Ready? Full reverse!
 
-Spin it ar
+Spin it aro
