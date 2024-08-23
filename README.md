@@ -1786,4 +1786,4 @@ That bowl is gnarly. Except for those dirty yellow rings!
 
 Kenneth! What are you doing?!
 
-You know, I don't even like h
+You know, I don't even like ho
