@@ -2042,4 +2042,4 @@ We're all aware of what they do in the woods.
 
 Wait for my signal. Take him out.
 
-He
+He'
