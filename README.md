@@ -686,4 +686,4 @@ Wait!
 
 Don't kill him!
 
-You know I'm aller
+You know I'm allerg
