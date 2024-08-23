@@ -2364,4 +2364,4 @@ What happened here?
 
 There was a DustBuster, a toupee, a life raft exploded.
 
-One's bald, one
+One's bald, one'
