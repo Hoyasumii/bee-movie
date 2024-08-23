@@ -1684,4 +1684,4 @@ Order in this court!
 
 You're all thinking it!
 
-Order! O
+Order! Or
