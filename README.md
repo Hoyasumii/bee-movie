@@ -2010,4 +2010,4 @@ I'm OK! You know what this means?
 
 All the honey will finally belong to the bees.
 
-Now we won't have to work so hard all the tim
+Now we won't have to work so hard all the time
