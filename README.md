@@ -1090,4 +1090,4 @@ I'm not listening to this.
 
 Sorry, I've gotta go.
 
-Where are you goin
+Where are you going
