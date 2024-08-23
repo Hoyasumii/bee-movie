@@ -472,4 +472,4 @@ You got a rain advisory today, and as you all know, bees cannot fly in rain.
 
 So be careful. As always, watch your brooms, hockey sticks, dogs, birds, bears and bats.
 
-Also, I got a couple of reports of root beer b
+Also, I got a couple of reports of root beer be
