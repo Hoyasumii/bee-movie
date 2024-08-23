@@ -1224,4 +1224,4 @@ I don't understand.
 
 I thought we were friends.
 
-The last thing we w
+The last thing we wa
