@@ -148,4 +148,4 @@ I can autograph that.
 A little gusty out there today, wasn't it, comrades?
 Yeah. Gusty.
 We're hitting a sunflower patch six miles from here tomorrow.
-Six m
+Six mi
