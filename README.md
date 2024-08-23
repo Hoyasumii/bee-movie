@@ -516,4 +516,4 @@ Wow! I'm out!
 
 I can't believe I'm out!
 
-So bl
+So blu
