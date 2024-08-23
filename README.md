@@ -2578,4 +2578,4 @@ Good. Good. Easy, now. That's it.
 
 Land on that flower!
 
-Ready? Full 
+Ready? Full r
