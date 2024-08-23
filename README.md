@@ -2288,4 +2288,4 @@ The pea?
 
 It goes under the mattresses.
 
-Not in this fai
+Not in this fair
