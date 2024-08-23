@@ -1104,4 +1104,4 @@ They have a huge parade of flowers every year in Pasadena?
 
 To be in the Tournament of Roses, that's every florist's dream!
 
-Up on a float, surrounded by flowe
+Up on a float, surrounded by flower
