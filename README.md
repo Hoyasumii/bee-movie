@@ -2192,4 +2192,4 @@ Tournament of Roses.
 
 Roses can't do sports.
 
-Wait a minute. Roses. R
+Wait a minute. Roses. Ro
