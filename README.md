@@ -1876,4 +1876,4 @@ Order! Order!
 
 The venom! The venom is coursing through my veins! I have been felled by a winged beast of destruction! You see? You can't treat them like equals! They're striped savages! Stinging's the only thing they know! It's their way!
 
-Adam, stay wit
+Adam, stay with
