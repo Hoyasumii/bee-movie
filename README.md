@@ -922,4 +922,4 @@ Well, not nothing, but... Anyway...
 
 This can't possibly work.
 
-He's all 
+He's all s
