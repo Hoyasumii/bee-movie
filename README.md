@@ -150,4 +150,4 @@ Yeah. Gusty.
 We're hitting a sunflower patch six miles from here tomorrow.
 Six miles, huh?
 Barry!
-A puddle jump for us, but maybe yo
+A puddle jump for us, but maybe you
