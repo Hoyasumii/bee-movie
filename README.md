@@ -714,4 +714,4 @@ Vanessa, next week? Yogurt night?
 
 Sure, Ken. You know, whatever.
 
-You could put carob chip
+You could put carob chips
