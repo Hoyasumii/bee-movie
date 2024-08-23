@@ -2544,4 +2544,4 @@ Thinking bee!
 
 Thinking bee! Thinking bee!
 
-Wait a minute. I think I'm feeling so
+Wait a minute. I think I'm feeling som
