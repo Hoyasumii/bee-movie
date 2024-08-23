@@ -800,4 +800,4 @@ It's no trouble. It takes two minutes.
 
 It's just coffee.
 
-I hate to impose
+I hate to impose.
