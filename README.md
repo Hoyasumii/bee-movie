@@ -2722,4 +2722,4 @@ Thinking bee!
 
 Me?
 
-Hold it. Let's just stop for a second. H
+Hold it. Let's just stop for a second. Ho
