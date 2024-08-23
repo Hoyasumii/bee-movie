@@ -2316,4 +2316,4 @@ Remove your stinger.
 
 It's part of me.
 
-I know. Just having som
+I know. Just having some
