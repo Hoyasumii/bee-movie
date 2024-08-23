@@ -538,4 +538,4 @@ Stand to the side, kid.
 
 It's got a bit of a kick.
 
-That is one nectar collec
+That is one nectar collect
