@@ -532,4 +532,4 @@ Bring it around 30 degrees and hold.
 
 Roses!
 
-30 degre
+30 degree
