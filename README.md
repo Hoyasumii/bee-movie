@@ -2677,3 +2677,5 @@ I had no idea.
 Barry, I'm sorry.
 
 Have you got a moment?
+
+W
