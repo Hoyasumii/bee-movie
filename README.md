@@ -1744,4 +1744,4 @@ Yeah, you do that.
 
 Look at that.
 
-You know, I've just about had it wi
+You know, I've just about had it wit
