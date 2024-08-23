@@ -2512,4 +2512,4 @@ Hold it!
 
 Why? Come on, it's my turn.
 
-How is the pla
+How is the plan
