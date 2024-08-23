@@ -816,4 +816,4 @@ No, I can't.
 
 Come on!
 
-I'm trying to lose a couple mic
+I'm trying to lose a couple micr
