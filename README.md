@@ -2440,4 +2440,4 @@ Stand by.
 
 We're going live.
 
-The way we work may be a mystery t
+The way we work may be a mystery to
