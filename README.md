@@ -1,3 +1,3 @@
 BEE Movie
 
-Written by Jerry Seinfeld & Andy Rob
+Written by Jerry Seinfeld & Andy Robi
