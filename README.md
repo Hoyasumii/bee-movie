@@ -478,4 +478,4 @@ Murphy's in a home because of it, babbling like a cicada!
 
 That's awful.
 
-And a r
+And a re
