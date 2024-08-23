@@ -704,4 +704,4 @@ I'm not scared of him.It's an allergic thing.
 
 My whole face could puff up.
 
-Make it one of your spec
+Make it one of your speci
