@@ -694,4 +694,4 @@ Why does his life have any less value than mine? Is that your statement?
 
 I'm just saying all life has value. You don't know what he's capable of feeling.
 
-My broc
+My broch
