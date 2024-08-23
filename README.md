@@ -1484,4 +1484,4 @@ Always leans forward, pointy shoulders, squinty eyes, very Jewish.
 
 In tennis, you attack at the point of weakness!
 
-It was my grandmother, Ken. She's 
+It was my grandmother, Ken. She's 8
