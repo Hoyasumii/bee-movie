@@ -49,4 +49,4 @@ No, I'm not going.
 Everybody knows, sting someone, you die.
 Don't waste it on a squirrel.
 Such a hothead.
-I guess he co
+I guess he cou
