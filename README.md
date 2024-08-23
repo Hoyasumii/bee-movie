@@ -882,4 +882,4 @@ Why do girls put rings on their toes?
 
 Why not?
 
-It's like
+It's like 
