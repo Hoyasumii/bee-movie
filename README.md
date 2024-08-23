@@ -1296,4 +1296,4 @@ Moose blood guy!!
 
 You hear something?
 
-Like wha
+Like what
