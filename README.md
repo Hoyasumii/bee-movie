@@ -1706,4 +1706,4 @@ Ken!
 
 Hello.
 
-I didn't thin
+I didn't think
