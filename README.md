@@ -145,4 +145,4 @@ I never thought I'd knock him out.
 What were you doing during this?
 Trying to alert the authorities.
 I can autograph that.
-A little gusty out there today, w
+A little gusty out there today, wa
