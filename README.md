@@ -668,4 +668,4 @@ What's number one? Star Wars?
 
 Nah, I don't go for that... kind of stuff.
 
-No wonder we shouldn't talk to them. They'r
+No wonder we shouldn't talk to them. They're
