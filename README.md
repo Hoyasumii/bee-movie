@@ -1912,4 +1912,4 @@ All right.
 
 You think it was all a trap?
 
-Of course. I'm sor
+Of course. I'm sorr
