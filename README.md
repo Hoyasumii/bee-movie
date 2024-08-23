@@ -1128,4 +1128,4 @@ Oh, my.
 
 Dumb bees!
 
-You must want to sting al
+You must want to sting all
