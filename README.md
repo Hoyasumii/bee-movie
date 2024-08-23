@@ -2492,4 +2492,4 @@ I can't do this!
 
 Vanessa, pull yourself together. You have to snap out of it!
 
-You snap
+You snap 
