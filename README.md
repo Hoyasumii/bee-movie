@@ -1306,4 +1306,4 @@ Whassup, bee boy?
 
 Hey, Blood.
 
-Just a row of honey jars, as far as the eye could se
+Just a row of honey jars, as far as the eye could see
