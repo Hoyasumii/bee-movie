@@ -1814,4 +1814,4 @@ Oh, well.
 
 Are you OK for the trial?
 
-I believe Mr. Montgomery is about out of idea
+I believe Mr. Montgomery is about out of ideas
