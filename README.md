@@ -46,4 +46,4 @@ Hear about Frankie?
 Yeah.
 You going to the funeral?
 No, I'm not going.
-E
+Ev
