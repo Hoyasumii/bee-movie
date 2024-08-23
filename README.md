@@ -2372,4 +2372,4 @@ No!
 
 No one's flying the plane!
 
-This is JFK control tower, Fligh
+This is JFK control tower, Flight
