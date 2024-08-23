@@ -1434,4 +1434,4 @@ That would hurt.
 
 No.
 
-Up the nose? That's a kill
+Up the nose? That's a kille
