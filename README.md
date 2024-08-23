@@ -918,4 +918,4 @@ And thank you so much again... for before.
 
 Oh, that? That was nothing.
 
-Well, not nothing, but... Anyway
+Well, not nothing, but... Anyway.
