@@ -2086,4 +2086,4 @@ Adam, you wouldn't believe how much honey was out there.
 
 Oh, yeah?
 
-What's going o
+What's going on
