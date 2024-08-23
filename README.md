@@ -2622,4 +2622,4 @@ Right.
 
 Barry, it worked!
 
-Did you s
+Did you se
