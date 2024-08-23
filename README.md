@@ -498,4 +498,4 @@ Antennae, check.
 
 Nectar pack, check.
 
-Wings, chec
+Wings, check
