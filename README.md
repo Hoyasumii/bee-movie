@@ -832,4 +832,4 @@ No.
 
 He's making the tie in the cab as they're flying up Madison.
 
-He fin
+He fina
