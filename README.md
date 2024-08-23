@@ -1842,4 +1842,4 @@ Good friends?
 
 Yes.
 
-How go
+How goo
