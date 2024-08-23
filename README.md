@@ -1774,4 +1774,4 @@ I've got issues!
 
 Well, well, well, a royal flush!
 
-You're 
+You're b
