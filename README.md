@@ -2648,4 +2648,4 @@ Keychain!
 
 Then follow me! Except Keychain.
 
-Hold on, Bar
+Hold on, Barr
