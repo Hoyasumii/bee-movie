@@ -592,4 +592,4 @@ This could be bad.
 
 Affirmative.
 
-Very clos
+Very close
