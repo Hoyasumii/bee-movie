@@ -1278,4 +1278,4 @@ Why does everything have
 
 to be so doggone clean?!
 
-How much do y
+How much do yo
