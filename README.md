@@ -110,4 +110,4 @@ You ever think maybe things work a little too well here?
 Like what? Give me one example.
 I don't know. But you know what I'm talking about.
 Please clear the gate. Royal Nectar Force on approach.
-Wa
+Wai
