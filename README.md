@@ -1516,4 +1516,4 @@ But it's our yogurt night!
 
 Bye-bye.
 
-Why is yogurt nig
+Why is yogurt nigh
