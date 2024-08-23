@@ -608,4 +608,4 @@ I don't think these are flowers.
 
 Should we tell him?
 
-I thin
+I think
