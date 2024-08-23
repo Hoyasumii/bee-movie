@@ -2328,4 +2328,4 @@ I think this is gonna work.
 
 It's got to work.
 
-Attention, passengers, this is Captain Sc
+Attention, passengers, this is Captain Sco
