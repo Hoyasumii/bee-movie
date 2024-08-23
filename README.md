@@ -2078,4 +2078,4 @@ We're shutting honey production!
 
 Mission abort.
 
-Aborting pollination and nectar de
+Aborting pollination and nectar det
