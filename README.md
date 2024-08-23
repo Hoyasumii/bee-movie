@@ -2722,4 +2722,4 @@ Thinking bee!
 
 Me?
 
-Hold i
+Hold it
