@@ -18,4 +18,4 @@ Barry?
 Adam?
 Can you believe this is happening?
 I can't.
-I'll pic
+I'll pick
