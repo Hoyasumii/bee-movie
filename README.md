@@ -2478,4 +2478,4 @@ All of you, let's get behind this fellow! Move it out!
 
 Move out!
 
-Our only chance is i
+Our only chance is if
