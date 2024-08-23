@@ -101,4 +101,4 @@ Wow! That blew my mind!
 "What's the difference?"
 How can you say that?
 One job forever?
-That's an insane choice to have to make
+That's an insane choice to have to make.
