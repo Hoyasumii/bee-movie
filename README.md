@@ -1668,4 +1668,4 @@ Thank you. Thank you.
 
 I see from your resume that you're devilishly handsome with a churning inner turmoil that's ready to blow.
 
-I enjoy what I
+I enjoy what I 
