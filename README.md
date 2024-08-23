@@ -2092,4 +2092,4 @@ Are they out celebrating?
 
 They're home.
 
-They don't know what to do. Laying
+They don't know what to do. Laying 
