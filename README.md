@@ -1990,4 +1990,4 @@ Look at what has happened to bees who have never been asked, "Smoking or non?" I
 
 Living out our lives as honey slaves to the white man?
 
-What a
+What ar
