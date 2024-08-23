@@ -1706,4 +1706,4 @@ Ken!
 
 Hello.
 
-I didn't think you wer
+I didn't think you were
