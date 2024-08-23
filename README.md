@@ -61,4 +61,4 @@ Hallelujah!
 Students, faculty, distinguished bees,
 please welcome Dean Buzzwell.
 Welcome, New Hive City graduating class of 9:15.
-That conclude
+That concludes
