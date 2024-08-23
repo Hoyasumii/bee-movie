@@ -2646,4 +2646,4 @@ We're bees!
 
 Keychain!
 
-Then follow me! Excep
+Then follow me! Except
