@@ -2588,4 +2588,4 @@ Which one?
 
 That flower.
 
-I'm aimin
+I'm aiming
