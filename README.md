@@ -932,4 +932,4 @@ Sounds amazing.
 
 It was amazing!
 
-It was the scariest, happiest momen
+It was the scariest, happiest moment
