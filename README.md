@@ -1526,4 +1526,4 @@ Frosting...
 
 How many sugars?
 
-Just on
+Just one
