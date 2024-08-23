@@ -946,4 +946,4 @@ They eat crazy giant things.
 
 They drive crazy.
 
-Do they try and kill you, like on T
+Do they try and kill you, like on TV
