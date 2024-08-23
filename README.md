@@ -2530,4 +2530,4 @@ Hello.
 
 All right, let's drop this tin can on the blacktop.
 
-Wh
+Whe
