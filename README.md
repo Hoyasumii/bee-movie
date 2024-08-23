@@ -714,4 +714,4 @@ Vanessa, next week? Yogurt night?
 
 Sure, Ken. You know, whatever.
 
-You c
+You co
