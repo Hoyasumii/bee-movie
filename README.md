@@ -1412,4 +1412,4 @@ I dated a cricket once in San Antonio. Those crazy legs kept me up all night.
 
 Barry, this is what you want to do with your life?
 
-I want to do it for all our lives. N
+I want to do it for all our lives. No
