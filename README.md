@@ -1544,4 +1544,4 @@ Bent stingers, pointless pollination.
 
 Bees must hate those fake things!
 
-Nothing worse than a daf
+Nothing worse than a daff
