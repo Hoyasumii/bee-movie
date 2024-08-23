@@ -842,4 +842,4 @@ And he says, "Watermelon?
 
 I thought you said Guatemalan.
 
-Why 
+Why w
