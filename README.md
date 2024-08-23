@@ -896,4 +896,4 @@ Anyway, this has been great.
 
 Thanks for the coffee.
 
-Yeah
+Yeah,
