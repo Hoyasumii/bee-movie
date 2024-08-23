@@ -962,4 +962,4 @@ Well...
 
 Well?
 
-Well, I met som
+Well, I met some
