@@ -60,4 +60,4 @@ Amen!
 Hallelujah!
 Students, faculty, distinguished bees,
 please welcome Dean Buzzwell.
-Welcome, New Hive
+Welcome, New Hive 
