@@ -2408,4 +2408,4 @@ We're headed into some lightning.
 
 This is Bob Bumble. We have some late-breaking news from JFK Airport, where a suspenseful scene is developing.
 
-Barry Benson, fresh
+Barry Benson, fresh 
