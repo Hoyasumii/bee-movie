@@ -638,4 +638,4 @@ He blinked!
 
 Spray him, Granny!
 
-Wh
+Wha
