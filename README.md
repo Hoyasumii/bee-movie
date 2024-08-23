@@ -2610,4 +2610,4 @@ Just drop it. Be a part of it.
 
 Aim for the center!
 
-Now 
+Now d
