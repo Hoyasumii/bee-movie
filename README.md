@@ -201,4 +201,4 @@ Make your choice.
 You want to go first?
 No, you go.
 Oh, my. What's available?
-Restroom attendant's open, not for the r
+Restroom attendant's open, not for the re
