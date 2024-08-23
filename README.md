@@ -1536,4 +1536,4 @@ Those are great, if you're three.
 
 And artificial flowers.
 
-Oh, those just ge
+Oh, those just get
