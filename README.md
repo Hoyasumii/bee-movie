@@ -940,4 +940,4 @@ Giant, scary humans!
 
 What were they like?
 
-Huge and crazy. They t
+Huge and crazy. They ta
