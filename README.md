@@ -1586,4 +1586,4 @@ Barry Bee Benson v. the Honey Industry is now in session.
 
 Mr. Montgomery, you're representing the five food companies collectively?
 
-A privile
+A privileg
