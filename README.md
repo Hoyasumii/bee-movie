@@ -468,4 +468,4 @@ Thank you.
 
 OK.
 
-You got a rai
+You got a rain
