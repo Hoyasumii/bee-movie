@@ -958,4 +958,4 @@ You did it, and I'm glad. You saw whatever you wanted to see.
 
 You had your "experience." Now you can pick out yourjob and be normal.
 
-Well
+Well.
