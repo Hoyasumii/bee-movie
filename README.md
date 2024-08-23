@@ -80,4 +80,4 @@ She's my cousin!
 She is?
 Yes, we're all cousins.
 Right. You're right.
-At Honex, we constantly str
+At Honex, we constantly stri
