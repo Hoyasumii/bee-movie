@@ -1866,4 +1866,4 @@ Don't y'all date your cousins?
 
 Objection!
 
-I'm going to pin
+I'm going to pinc
