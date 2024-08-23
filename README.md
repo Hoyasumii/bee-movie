@@ -730,4 +730,4 @@ Nah.
 
 What would I say?
 
-I could rea
+I could real
