@@ -2152,4 +2152,4 @@ And then, of course...
 
 The human species?
 
-So if there's no more pol
+So if there's no more poll
