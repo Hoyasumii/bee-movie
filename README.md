@@ -1336,4 +1336,4 @@ Mooseblood!
 
 I knew I'd catch y'all down here.
 
-Did you bring your crazy s
+Did you bring your crazy st
