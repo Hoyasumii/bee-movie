@@ -588,4 +588,4 @@ Problem!
 
 Guys!
 
-This could be bad
+This could be bad.
