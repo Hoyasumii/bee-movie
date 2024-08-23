@@ -2406,4 +2406,4 @@ Wait, Barry!
 
 We're headed into some lightning.
 
-This is Bob Bumble. We have some late-breaking news fr
+This is Bob Bumble. We have some late-breaking news fro
