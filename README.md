@@ -600,4 +600,4 @@ Mama's little boy.
 
 You are way out of position, rookie!
 
-Coming in at you like a mis
+Coming in at you like a miss
