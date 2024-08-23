@@ -1048,4 +1048,4 @@ How much longer will this go on?
 
 It's been three days! Why aren't you working?
 
-I've got a lot of big life decisions to think ab
+I've got a lot of big life decisions to think abo
