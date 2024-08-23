@@ -752,4 +752,4 @@ You're talking!
 
 I'm so sorry.
 
-No, it's O
+No, it's OK
