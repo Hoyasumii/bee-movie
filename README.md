@@ -852,4 +852,4 @@ Yeah, different.
 
 So, what are you gonna do, Barry?
 
-About w
+About wo
