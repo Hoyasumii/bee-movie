@@ -1240,4 +1240,4 @@ Crazy person!
 
 What horrible thing has happened here?
 
-Thes
+These
