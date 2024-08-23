@@ -1506,4 +1506,4 @@ Hello, bee.
 
 This is Ken.
 
-Yeah, I remember you. Timberland, size ten and a half. Vibr
+Yeah, I remember you. Timberland, size ten and a half. Vibra
