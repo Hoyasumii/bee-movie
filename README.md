@@ -488,4 +488,4 @@ Black and yellow!
 
 Hello!
 
-You ready for this, h
+You ready for this, ho
