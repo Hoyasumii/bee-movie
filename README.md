@@ -37,4 +37,4 @@ Hey, Barry.
 Is that fuzz gel?
 A little. Special day, graduation.
 Never thought I'd make it.
-Three days grade schoo
+Three days grade school
