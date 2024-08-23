@@ -2276,4 +2276,4 @@ How about The Princess and the Pea?
 
 I could be the princess, and you could be the pea!
 
-Yes, I g
+Yes, I go
