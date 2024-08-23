@@ -780,4 +780,4 @@ What?
 
 The talking thing.
 
-Same way yo
+Same way you
