@@ -1692,4 +1692,4 @@ Mr. Liotta, please sit down!
 
 I think it was awfully nice of that bear to pitch in like that. I think the jury's on our side.
 
-Are we doing everything right,
+Are we doing everything right, 
