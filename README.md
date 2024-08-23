@@ -824,4 +824,4 @@ These stripes don't help.
 
 You look great!
 
-I don't know if yo
+I don't know if you
