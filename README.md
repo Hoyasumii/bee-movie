@@ -2210,4 +2210,4 @@ Flowers, bees, pollen!
 
 I know.
 
-That's why this is the last parade
+That's why this is the last parade.
