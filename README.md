@@ -672,4 +672,4 @@ No wonder we shouldn't talk to them. They're out of their minds.
 
 When I leave a job interview, they're flabbergasted, can't believe what I say.
 
-There's the sun. Maybe that's a way o
+There's the sun. Maybe that's a way ou
