@@ -840,4 +840,4 @@ The wedding is on.
 
 And he says, "Watermelon?
 
-I thought you sai
+I thought you said
