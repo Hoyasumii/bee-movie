@@ -181,4 +181,4 @@ Wait till you see the sticks I have.
 I could say anything right now.
 I'm gonna get an ant tattoo!
 Let's open some honey and celebrate!
-Maybe I'll pierce my thorax. Shave my an
+Maybe I'll pierce my thorax. Shave my ant
