@@ -2332,4 +2332,4 @@ Attention, passengers, this is Captain Scott. We have a bit of bad weather in Ne
 
 Barry, these are cut flowers with no water. They'll never make it.
 
-I gotta get up there and talk to th
+I gotta get up there and talk to the
