@@ -1766,4 +1766,4 @@ Not as much.
 
 Water bug! Not taking sides!
 
-Ken, I'm wearing a Chaps
+Ken, I'm wearing a Chapst
