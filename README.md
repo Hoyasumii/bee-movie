@@ -2486,4 +2486,4 @@ I'm not yelling! We're in a lot of trouble.
 
 It's very hard to concentrate with that panicky tone in your voice!
 
-It'
+It's
