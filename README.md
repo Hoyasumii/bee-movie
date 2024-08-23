@@ -677,3 +677,5 @@ There's the sun. Maybe that's a way out.
 I don't remember the sun having a big 75 on it.
 
 I predicted global warming. I could feel it getting hotter. At first I thought it was just me.
+
+W
