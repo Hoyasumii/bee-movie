@@ -698,4 +698,4 @@ My brochure!
 
 There you go, little guy.
 
-I'm not scared 
+I'm not scared o
