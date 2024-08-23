@@ -2440,4 +2440,4 @@ Stand by.
 
 We're going live.
 
-The way we wor
+The way we work
