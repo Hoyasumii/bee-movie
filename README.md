@@ -844,4 +844,4 @@ I thought you said Guatemalan.
 
 Why would I marry a watermelon?"
 
-Is that a bee jok
+Is that a bee joke
