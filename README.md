@@ -706,4 +706,4 @@ My whole face could puff up.
 
 Make it one of your special skills.
 
-Knocking someone 
+Knocking someone o
