@@ -2460,4 +2460,4 @@ Hover?
 
 Forget hover.
 
-This isn't s
+This isn't so
