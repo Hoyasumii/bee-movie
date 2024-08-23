@@ -534,4 +534,4 @@ Roses!
 
 30 degrees, roger. Bringing it around.
 
-Stand to the side, ki
+Stand to the side, kid
