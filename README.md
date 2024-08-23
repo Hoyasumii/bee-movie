@@ -1436,4 +1436,4 @@ No.
 
 Up the nose? That's a killer.
 
-There's only one place you can sting the
+There's only one place you can sting the 
