@@ -690,4 +690,4 @@ You know I'm allergic to them! This thing could kill me!
 
 Why does his life have less value than yours?
 
-Why does his life have any less value than mine? Is 
+Why does his life have any less value than mine? Is t
