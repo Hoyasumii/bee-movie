@@ -2692,4 +2692,4 @@ Have a great afternoon!
 
 Barry, I just got this huge tulip order, and I can't get them anywhere.
 
-No problem, Vannie. Just leave it to me
+No problem, Vannie. Just leave it to me.
