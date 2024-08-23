@@ -1842,4 +1842,4 @@ Good friends?
 
 Yes.
 
-How good? Do you live t
+How good? Do you live to
