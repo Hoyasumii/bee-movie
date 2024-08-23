@@ -686,4 +686,4 @@ Wait!
 
 Don't kill him!
 
-You kn
+You kno
