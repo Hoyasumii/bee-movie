@@ -1208,4 +1208,4 @@ Almost.
 
 He is here. I sense it.
 
-Well, I guess I'll go home now an
+Well, I guess I'll go home now and
