@@ -898,4 +898,4 @@ Thanks for the coffee.
 
 Yeah, it's no trouble.
 
-Sorry I couldn't finis
+Sorry I couldn't finish
