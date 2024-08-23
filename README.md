@@ -162,4 +162,4 @@ Dad, you surprised me.
 You decide what you're interested in?
 Well, there's a lot of choices.
 But you only get one.
-Do you ever get bored d
+Do you ever get bored do
