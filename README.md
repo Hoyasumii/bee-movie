@@ -1804,4 +1804,4 @@ Goodbye, Ken.
 
 And for your information, I prefer sugar-free, artificial sweeteners made by man!
 
-I'm sor
+I'm sorr
