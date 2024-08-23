@@ -836,4 +836,4 @@ He finally gets there.
 
 He runs up the steps into the church.
 
-The wedding is o
+The wedding is on
