@@ -1162,4 +1162,4 @@ I lost a cousin to Italian Vogue.
 
 I'll bet.
 
-What in the
+What in the 
