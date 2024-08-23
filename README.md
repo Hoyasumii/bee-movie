@@ -2392,4 +2392,4 @@ From the honey trial?! Oh, great.
 
 Vanessa, this is nothing more than a big metal bee.
 
-It's got gian
+It's got giant
