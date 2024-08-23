@@ -1744,4 +1744,4 @@ Yeah, you do that.
 
 Look at that.
 
-You kno
+You know
