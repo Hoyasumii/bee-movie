@@ -2648,4 +2648,4 @@ Keychain!
 
 Then follow me! Except Keychain.
 
-Hold on, Barry. Here. You've earne
+Hold on, Barry. Here. You've earned
