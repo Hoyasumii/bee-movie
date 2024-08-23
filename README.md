@@ -1268,4 +1268,4 @@ What is that?!
 
 Oh, no!
 
-A wiper! Triple b
+A wiper! Triple bl
