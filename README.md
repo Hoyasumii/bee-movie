@@ -1612,4 +1612,4 @@ Ladies and gentlemen, there's no trickery here. I'm just an ordinary bee. Honey'
 
 Unfortunately, there are some people in this room who think they can take it from us 'cause we're the little guys!
 
-I'm hoping 
+I'm hoping t
