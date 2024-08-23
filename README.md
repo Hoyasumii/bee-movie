@@ -992,4 +992,4 @@ Oh, no! You're dating a human florist!
 
 We're not dating.
 
-You're flying outside The Hive, talking to humans that attack our homes with power washers and M-80
+You're flying outside The Hive, talking to humans that attack our homes with power washers and M-80s
