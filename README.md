@@ -1268,4 +1268,4 @@ What is that?!
 
 Oh, no!
 
-A wiper! Trip
+A wiper! Tripl
