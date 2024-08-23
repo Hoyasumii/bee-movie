@@ -1496,4 +1496,4 @@ Actual work going on here.
 
 Is that that same bee?
 
-Yes, i
+Yes, it
