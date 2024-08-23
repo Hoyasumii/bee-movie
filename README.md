@@ -2600,4 +2600,4 @@ Rotate around it.
 
 This is insane, Barry!
 
-This's the only way I know ho
+This's the only way I know how
