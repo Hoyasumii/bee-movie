@@ -1544,4 +1544,4 @@ Bent stingers, pointless pollination.
 
 Bees must hate those fake things!
 
-Nothing worse than a daffodil t
+Nothing worse than a daffodil th
