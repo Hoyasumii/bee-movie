@@ -490,4 +490,4 @@ Hello!
 
 You ready for this, hot shot?
 
-Yea
+Yeah
