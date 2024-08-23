@@ -1998,4 +1998,4 @@ Ladies and gentlemen, please, free these bees!
 
 Free the bees! Free the bees! Free the bees! Free the bees! Free the bees!
 
-The court finds in favor of the b
+The court finds in favor of the be
