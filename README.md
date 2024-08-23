@@ -910,4 +910,4 @@ Thanks!
 
 Yeah.
 
-All right. Well, then... I gue
+All right. Well, then... I gues
