@@ -932,4 +932,4 @@ Sounds amazing.
 
 It was amazing!
 
-It was the scariest, hap
+It was the scariest, happ
