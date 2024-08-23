@@ -598,4 +598,4 @@ Gonna hurt.
 
 Mama's little boy.
 
-You are way out of position, rook
+You are way out of position, rooki
