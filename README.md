@@ -2676,4 +2676,4 @@ I had no idea.
 
 Barry, I'm sorry.
 
-Have yo
+Have you
