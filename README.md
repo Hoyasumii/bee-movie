@@ -1460,4 +1460,4 @@ Bees have never been afraid to change the world.
 
 What about Bee Oolumbus? Bee Gandhi? Bejesus?
 
-Wher
+Where
