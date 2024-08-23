@@ -214,4 +214,4 @@ Dead from the neck up. Dead from the neck down. That's life!
 Oh, this is so hard!
 Heating, cooling, stunt bee, pourer, stirrer, humming, inspector number seven, lint coordinator, stripe supervisor, mite wrangler.
 Barry, what do you think I should... Barry?
-Bar
+Barr
