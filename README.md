@@ -1894,4 +1894,4 @@ Is there much pain?
 
 Yeah.
 
-I... I blew the whole c
+I... I blew the whole ca
