@@ -2140,4 +2140,4 @@ Bees?
 
 Specifically, me.
 
-I didn't think bees not needing to make honey would affect all these thin
+I didn't think bees not needing to make honey would affect all these thing
