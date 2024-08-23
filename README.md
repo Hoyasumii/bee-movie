@@ -27,4 +27,4 @@ We're very proud of you, son.
 A perfect report card, all B's.
 Very proud.
 Ma! I got a thing going here.
-You got lint 
+You got lint o
