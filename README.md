@@ -2582,4 +2582,4 @@ Ready? Full reverse!
 
 Spin it around!
 
-Not that flower! The othe
+Not that flower! The other
