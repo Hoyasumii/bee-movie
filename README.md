@@ -1038,4 +1038,4 @@ Thinking bee.
 
 Thinking bee! Thinking bee! Thinking bee! Thinking bee!
 
-There he
+There he 
