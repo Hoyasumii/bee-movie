@@ -2274,4 +2274,4 @@ Once inside, we just pick the right float.
 
 How about The Princess and the Pea?
 
-I could be the princ
+I could be the prince
