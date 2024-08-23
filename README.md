@@ -1269,3 +1269,5 @@ What is that?!
 Oh, no!
 
 A wiper! Triple blade!
+
+T
