@@ -1258,4 +1258,4 @@ I'm going to Tacoma.
 
 And you?
 
-He re
+He rea
