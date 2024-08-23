@@ -1802,4 +1802,4 @@ My nerves are fried from riding on this emotional roller coaster!
 
 Goodbye, Ken.
 
-And fo
+And for
