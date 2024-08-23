@@ -2440,4 +2440,4 @@ Stand by.
 
 We're going live.
 
-The 
+The w
