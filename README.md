@@ -2080,4 +2080,4 @@ Mission abort.
 
 Aborting pollination and nectar detail.
 
-Retu
+Retur
