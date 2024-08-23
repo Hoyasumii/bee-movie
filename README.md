@@ -1334,4 +1334,4 @@ Hey, guys!
 
 Mooseblood!
 
-I knew I'd catch y'all down he
+I knew I'd catch y'all down her
