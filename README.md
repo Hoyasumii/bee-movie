@@ -1118,4 +1118,4 @@ Yeah, OK, I see, I see.
 
 All right, your turn.
 
-TiVo. You can just freeze liv
+TiVo. You can just freeze live
