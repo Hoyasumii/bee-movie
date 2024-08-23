@@ -1868,4 +1868,4 @@ Objection!
 
 I'm going to pincushion this guy!
 
-Adam, don't! It's what h
+Adam, don't! It's what he
