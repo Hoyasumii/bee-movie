@@ -1112,4 +1112,4 @@ No. All right, I've got one.
 
 How come you don't fly everywhere?
 
-It's exhausting. W
+It's exhausting. Wh
