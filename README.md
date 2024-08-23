@@ -760,4 +760,4 @@ Well, I'm sure this is very disconcerting.
 
 This is a bit of a surprise to me. I mean, you're a bee!
 
-I am. And I'm not supposed to be doing this, but they were all trying t
+I am. And I'm not supposed to be doing this, but they were all trying to
