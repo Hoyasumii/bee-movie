@@ -1858,4 +1858,4 @@ Yes, they are!
 
 Hold me back!
 
-You're an illegitimat
+You're an illegitimate
