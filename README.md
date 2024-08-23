@@ -2041,3 +2041,5 @@ We demand an end to the glorification of the bear as anything more than a filthy
 We're all aware of what they do in the woods.
 
 Wait for my signal. Take him out.
+
+H
