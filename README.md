@@ -2564,4 +2564,4 @@ Get some lights on that!
 
 Thinking bee!
 
-Thinking bee! Th
+Thinking bee! Thi
