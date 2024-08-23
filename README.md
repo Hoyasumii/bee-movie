@@ -644,4 +644,4 @@ Wow... the tension level out here is unbelievable.
 
 I gotta get home.
 
-Can't fly in ra
+Can't fly in rai
