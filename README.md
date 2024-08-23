@@ -120,4 +120,4 @@ Hey, Jocks!
 Hi, Jocks!
 You guys did great!
 You're monsters!
-You're sky freaks! I lov
+You're sky freaks! I love
