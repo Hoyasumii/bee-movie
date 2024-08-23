@@ -1956,4 +1956,4 @@ Yes? Yes, Your Honor!
 
 Where is the rest of your team?
 
-Well, Your Honor, it's interestin
+Well, Your Honor, it's interesting
