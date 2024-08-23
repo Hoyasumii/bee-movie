@@ -894,4 +894,4 @@ Just having two cups of coffee!
 
 Anyway, this has been great.
 
-Thanks for the c
+Thanks for the co
