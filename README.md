@@ -2472,4 +2472,4 @@ That may have been helping me.
 
 And now we're not!
 
-So it turns out I cann
+So it turns out I canno
