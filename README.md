@@ -660,4 +660,4 @@ What was that?
 
 Maybe this time. This time. This time. This time! This time! This... Drapes!
 
-That is diaboli
+That is diabolic
