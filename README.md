@@ -1836,4 +1836,4 @@ Mr. Benson Bee, I'll ask you what I think we'd all like to know.
 
 What exactly is your relationship to that woman?
 
-We'
+We'r
