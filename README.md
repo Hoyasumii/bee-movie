@@ -1894,4 +1894,4 @@ Is there much pain?
 
 Yeah.
 
-I... I blew t
+I... I blew th
