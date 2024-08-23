@@ -2134,4 +2134,4 @@ No.
 
 And whose fault do you think that is?
 
-You know, I'm gonna g
+You know, I'm gonna gu
