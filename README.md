@@ -1782,4 +1782,4 @@ Surf's up, dude!
 
 Poo water!
 
-That bowl is gnarl
+That bowl is gnarly
