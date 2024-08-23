@@ -1052,4 +1052,4 @@ I've got a lot of big life decisions to think about.
 
 What life? You have no life!
 
-You hav
+You have
