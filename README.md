@@ -2132,4 +2132,4 @@ Doesn't look very good, does it?
 
 No.
 
-And wh
+And who
