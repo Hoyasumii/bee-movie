@@ -56,4 +56,4 @@ Boy, quite a bit of pomp under the circumstances.
 Well, Adam, today we are men.
 We are!
 Bee-men.
-Amen
+Amen!
