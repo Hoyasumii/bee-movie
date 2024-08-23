@@ -2208,4 +2208,4 @@ Yes, they are.
 
 Flowers, bees, pollen!
 
-I know
+I know.
