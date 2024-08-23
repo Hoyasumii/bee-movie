@@ -2528,4 +2528,4 @@ Black and yellow.
 
 Hello.
 
-All righ
+All right
