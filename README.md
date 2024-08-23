@@ -1506,4 +1506,4 @@ Hello, bee.
 
 This is Ken.
 
-Yeah, I remember you. Timberland, size ten an
+Yeah, I remember you. Timberland, size ten and
