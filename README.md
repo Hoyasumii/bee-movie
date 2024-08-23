@@ -1246,4 +1246,4 @@ they're on the road to nowhere!
 
 Just keep still.
 
-What? You're not dea
+What? You're not dead
