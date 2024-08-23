@@ -1772,4 +1772,4 @@ This is pathetic!
 
 I've got issues!
 
-Well, we
+Well, wel
