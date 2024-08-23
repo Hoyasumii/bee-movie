@@ -147,4 +147,4 @@ Trying to alert the authorities.
 I can autograph that.
 A little gusty out there today, wasn't it, comrades?
 Yeah. Gusty.
-We're hitting a sunflower patch six mile
+We're hitting a sunflower patch six miles
