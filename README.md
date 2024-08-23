@@ -1,3 +1,3 @@
 BEE Movie
 
-Written by Jerry Sein
+Written by Jerry Seinf
