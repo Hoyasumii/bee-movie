@@ -1164,4 +1164,4 @@ I'll bet.
 
 What in the name of Mighty Hercules is this?
 
-How did this get 
+How did this get h
