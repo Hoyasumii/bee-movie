@@ -1636,4 +1636,4 @@ I couldn't hear you.
 
 No.
 
-No. Because you don't free bees. You keep bees. Not only that, it seems you thought a bear would be an appropriate image for 
+No. Because you don't free bees. You keep bees. Not only that, it seems you thought a bear would be an appropriate image for a
