@@ -1782,4 +1782,4 @@ Surf's up, dude!
 
 Poo water!
 
-That bowl is gnarly. Except for those dirty yell
+That bowl is gnarly. Except for those dirty yello
