@@ -2410,4 +2410,4 @@ This is Bob Bumble. We have some late-breaking news from JFK Airport, where a su
 
 Barry Benson, fresh from his legal victory...
 
-That'
+That's
