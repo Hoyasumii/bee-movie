@@ -8,6 +8,7 @@ with open(sys.argv[1], "r", encoding="utf-8") as doc:
     with (open("README.md", "a", encoding="utf=8")) as testFile:
       for letter in item:
         testFile.write(letter)
+        testFile.close()
         os.system("git add .")
         os.system(f'git commit -m "A Letra {letter} foi adicionada"')
         os.system("git push")
