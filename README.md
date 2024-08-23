@@ -1984,4 +1984,4 @@ What is that?
 
 It's a bee smoker!
 
-What, t
+What, th
