@@ -1320,4 +1320,4 @@ Not us, man. We on our own. Every mosquito on his own.
 
 What if you get in trouble?
 
-You a mosquito, you in troubl
+You a mosquito, you in trouble
