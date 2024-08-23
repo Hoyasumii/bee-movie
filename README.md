@@ -1022,4 +1022,4 @@ Sit down!
 
 Listen to me!
 
-We are no
+We are not
