@@ -1054,4 +1054,4 @@ What life? You have no life!
 
 You have no job. You're barely a bee!
 
-Would it kill you to make a little hone
+Would it kill you to make a little honey
