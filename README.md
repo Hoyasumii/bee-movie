@@ -2686,4 +2686,4 @@ Sorry I'm late.
 
 He's a lawyer too?
 
-I was alr
+I was alre
