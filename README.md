@@ -792,4 +792,4 @@ Anyway... Can I... get you something?
 
 Like what?
 
-I don't k
+I don't kn
