@@ -172,4 +172,4 @@ maybe the honey field just isn't right for me.
 You were thinking of what, making balloon animals?
 That's a bad job for a guy with a stinger.
 Janet, your son's not sure he wants to go into honey!
-Barry, you are so funny sometimes
+Barry, you are so funny sometimes.
