@@ -744,4 +744,4 @@ Here she comes! Speak, you fool!
 
 Hi!
 
-I'm sorry. Yo
+I'm sorry. You
