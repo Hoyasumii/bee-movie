@@ -68,4 +68,4 @@ Heads up! Here we go.
 Keep your hands and antennas inside the tram at all times.
 Wonder what it'll be like?
 A little scary.
-Welcome to Honex, a division of Honesco an
+Welcome to Honex, a division of Honesco and
