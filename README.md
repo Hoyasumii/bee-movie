@@ -594,4 +594,4 @@ Affirmative.
 
 Very close.
 
-Gonna hu
+Gonna hur
