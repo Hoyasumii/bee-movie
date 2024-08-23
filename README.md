@@ -686,4 +686,4 @@ Wait!
 
 Don't kill him!
 
-You know I'm allergic to th
+You know I'm allergic to the
