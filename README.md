@@ -1130,4 +1130,4 @@ Dumb bees!
 
 You must want to sting all those jerks.
 
-We try not to sting. It's usual
+We try not to sting. It's usuall
