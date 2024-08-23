@@ -1842,4 +1842,4 @@ Good friends?
 
 Yes.
 
-How good? Do y
+How good? Do yo
