@@ -1794,4 +1794,4 @@ And he happens to be the nicest bee I've met in a long time!
 
 Long time? What are you talking about?! Are there other bugs in your life?
 
- No, but there are other things bugging me in life. And you're one of th
+ No, but there are other things bugging me in life. And you're one of the
