@@ -2023,3 +2023,5 @@ All right. One at a time.
 Barry, who are you wearing?
 
 My sweater is Ralph Lauren, and I have no pants.
+
+W
