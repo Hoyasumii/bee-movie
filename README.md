@@ -1552,4 +1552,4 @@ This lawsuit's a pretty big deal.
 
 I guess.
 
-You sur
+You sure
