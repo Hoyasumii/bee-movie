@@ -1750,4 +1750,4 @@ What's that?
 
 Italian Vogue.
 
-Mamma mia, that's a lot of p
+Mamma mia, that's a lot of pa
