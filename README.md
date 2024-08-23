@@ -1046,4 +1046,4 @@ I gotta start thinking bee?
 
 How much longer will this go on?
 
-It's been three days! Why aren't you wo
+It's been three days! Why aren't you wor
