@@ -868,4 +868,4 @@ Really?
 
 My only interest is flowers.
 
-Our new queen was just elected with that same campaign sl
+Our new queen was just elected with that same campaign slo
