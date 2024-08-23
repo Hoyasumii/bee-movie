@@ -1984,4 +1984,4 @@ What is that?
 
 It's a bee smoker!
 
-What, this? This harmless little contraption? This coul
+What, this? This harmless little contraption? This could
