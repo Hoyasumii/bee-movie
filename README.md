@@ -644,4 +644,4 @@ Wow... the tension level out here is unbelievable.
 
 I gotta get home.
 
-Can't fly in rain. Ca
+Can't fly in rain. Can
