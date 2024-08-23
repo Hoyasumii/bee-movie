@@ -1554,4 +1554,4 @@ I guess.
 
 You sure you want to go through with it?
 
-Am I sure? Wh
+Am I sure? Whe
