@@ -2315,3 +2315,5 @@ Would you remove your shoes?
 Remove your stinger.
 
 It's part of me.
+
+I
