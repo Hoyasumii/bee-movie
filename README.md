@@ -1494,4 +1494,4 @@ Quiet, please.
 
 Actual work going on here.
 
-Is that that same b
+Is that that same be
