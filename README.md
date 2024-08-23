@@ -1328,4 +1328,4 @@ Mosquito girls try to trade up, get with a moth, dragonfly. Mosquito girl don't 
 
 You got to be kidding me!
 
-Mooseblood's about t
+Mooseblood's about to
