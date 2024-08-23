@@ -2714,4 +2714,4 @@ Sure is.
 
 Between you and me,
 
-I was dyin
+I was dying
