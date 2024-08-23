@@ -1312,4 +1312,4 @@ Wow!
 
 I assume wherever this truck goes is where they're getting it. I mean, that honey's ours.
 
-Bees hang tigh
+Bees hang tight
