@@ -974,4 +974,4 @@ Spider?
 
 I'm not attracted to spiders.
 
-I know it's the hottest thing, with the eight legs and all. I can't get by that fac
+I know it's the hottest thing, with the eight legs and all. I can't get by that face
