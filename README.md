@@ -1310,4 +1310,4 @@ Just a row of honey jars, as far as the eye could see.
 
 Wow!
 
-I assume wherever this truck goes is where they're getting it. I mean, that honey's ou
+I assume wherever this truck goes is where they're getting it. I mean, that honey's our
