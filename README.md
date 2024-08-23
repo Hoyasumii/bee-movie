@@ -1136,4 +1136,4 @@ So you have to watch your temper.
 
 Very carefully.
 
-You kick a wall, take a walk, write an angry letter and throw it out. Work through it like any emotion: Anger, j
+You kick a wall, take a walk, write an angry letter and throw it out. Work through it like any emotion: Anger, je
