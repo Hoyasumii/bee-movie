@@ -67,4 +67,4 @@ I heard it's just orientation.
 Heads up! Here we go.
 Keep your hands and antennas inside the tram at all times.
 Wonder what it'll be like?
-A 
+A l
