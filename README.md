@@ -648,4 +648,4 @@ Can't fly in rain. Can't fly in rain. Can't fly in rain.
 
 Mayday! Mayday! Bee going down!
 
-Ken, could you close the window p
+Ken, could you close the window pl
