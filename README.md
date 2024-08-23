@@ -1466,4 +1466,4 @@ We were thinking of stickball or candy stores.
 
 How old are you?
 
-The bee community is supporting you in this case, which will be the tria
+The bee community is supporting you in this case, which will be the trial
