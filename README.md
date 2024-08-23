@@ -1141,3 +1141,5 @@ You kick a wall, take a walk, write an angry letter and throw it out. Work throu
 Oh, my goodness! Are you OK?
 
 Yeah.
+
+W
