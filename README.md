@@ -212,4 +212,4 @@ A bee died. Makes an opening. See? He's dead. Another dead one.
 Deady. Deadified. Two more dead.
 Dead from the neck up. Dead from the neck down. That's life!
 Oh, this is so hard!
-Heating, c
+Heating, co
