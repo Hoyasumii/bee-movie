@@ -710,4 +710,4 @@ Knocking someone out is also a special skill.
 
 Right. Bye, Vanessa. Thanks.
 
-Vanessa, next week? Yo
+Vanessa, next week? Yog
