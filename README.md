@@ -2708,4 +2708,4 @@ When will this nightmare end?!
 
 Let it all go.
 
-Beaut
+Beauti
