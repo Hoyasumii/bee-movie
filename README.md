@@ -2298,4 +2298,4 @@ Let's see what this baby'll do.
 
 Hey, what are you doing?!
 
-Then al
+Then all
