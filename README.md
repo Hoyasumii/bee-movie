@@ -986,4 +986,4 @@ Her name's Vanessa.
 
 Oh, boy.
 
-She's so nice. And sh
+She's so nice. And she
