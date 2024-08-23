@@ -1738,4 +1738,4 @@ That's just what I was thinking about doing.
 
 Ken, I let Barry borrow your razor for his fuzz. I hope that was all right.
 
-I'm going to d
+I'm going to dr
