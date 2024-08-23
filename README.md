@@ -802,4 +802,4 @@ It's just coffee.
 
 I hate to impose.
 
-Don't be ri
+Don't be rid
