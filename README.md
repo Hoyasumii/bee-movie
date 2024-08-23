@@ -544,4 +544,4 @@ Ever see pollination up close?
 
 No, sir.
 
-I pick up some pollen here, sprinkle it ove
+I pick up some pollen here, sprinkle it over
