@@ -1624,4 +1624,4 @@ I suppose so.
 
 I see you also own Honeyburton and Honron!
 
-Yes, they provid
+Yes, they provide
