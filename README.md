@@ -130,4 +130,4 @@ Right.
 Look. That's more pollen than you and I will see in a lifetime.
 It's just a status symbol.
 Bees make too much of it.
-Perha
+Perhap
