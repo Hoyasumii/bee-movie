@@ -1040,4 +1040,4 @@ Thinking bee! Thinking bee! Thinking bee! Thinking bee!
 
 There he is. He's in the pool.
 
-You know what your problem 
+You know what your problem i
