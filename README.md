@@ -1840,4 +1840,4 @@ We're friends.
 
 Good friends?
 
-Ye
+Yes
