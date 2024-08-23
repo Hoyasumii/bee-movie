@@ -1200,4 +1200,4 @@ You've taken our homes, schools,hospitals! This is all we have!
 
 And it's on sale?! I'm getting to the bottom of this.
 
-I'm getting to the b
+I'm getting to the bo
