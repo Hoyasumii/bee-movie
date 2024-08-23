@@ -2404,4 +2404,4 @@ How hard could it be?
 
 Wait, Barry!
 
-We're headed into some light
+We're headed into some lightn
