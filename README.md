@@ -536,4 +536,4 @@ Roses!
 
 Stand to the side, kid.
 
-It's got a bit of 
+It's got a bit of a
