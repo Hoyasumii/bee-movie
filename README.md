@@ -506,4 +506,4 @@ Scared out of my shorts, check.
 
 OK, ladies,
 
-let's m
+let's mo
