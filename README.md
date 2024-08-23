@@ -594,4 +594,4 @@ Affirmative.
 
 Very close.
 
-Gonna hurt
+Gonna hurt.
