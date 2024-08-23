@@ -2048,4 +2048,4 @@ And we will no longer tolerate bee-negative nicknames...
 
 But it's just a prance-about stage name!
 
-...unnecessary inclusion of ho
+...unnecessary inclusion of hon
