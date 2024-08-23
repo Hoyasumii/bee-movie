@@ -1644,4 +1644,4 @@ You mean like this?
 
 Bears kill bees!
 
-How'd you like his head crashing through your living room?! Biting into your couch! Spitting out your throw pillows! O
+How'd you like his head crashing through your living room?! Biting into your couch! Spitting out your throw pillows! OK
