@@ -1442,4 +1442,4 @@ Hive at Five, The Hive's only full-hour action news source.
 
 No more bee beards!
 
-With Bob Bumble at the anchor desk. Weather wit
+With Bob Bumble at the anchor desk. Weather with
