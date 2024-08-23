@@ -1482,4 +1482,4 @@ Bear Week next week! They're scary, hairy and here live.
 
 Always leans forward, pointy shoulders, squinty eyes, very Jewish.
 
-In tennis, you attack at the point of weakn
+In tennis, you attack at the point of weakne
