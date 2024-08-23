@@ -506,4 +506,4 @@ Scared out of my shorts, check.
 
 OK, ladies,
 
-let's move i
+let's move it
