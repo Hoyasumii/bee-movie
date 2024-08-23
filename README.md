@@ -640,4 +640,4 @@ Spray him, Granny!
 
 What are you doing?!
 
-Wow... the tension lev
+Wow... the tension leve
