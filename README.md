@@ -1498,4 +1498,4 @@ Is that that same bee?
 
 Yes, it is!
 
-I'm helpin
+I'm helping
