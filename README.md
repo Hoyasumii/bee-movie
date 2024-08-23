@@ -1194,4 +1194,4 @@ It's just honey, Barry.
 
 Just what?!
 
-Bees don't know about t
+Bees don't know about th
