@@ -193,4 +193,4 @@ Hang on. Two left!
 One of them's yours! Congratulations!
 Step to the side.
 What'd you get?
-Picking crud o
+Picking crud ou
