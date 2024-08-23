@@ -1524,4 +1524,4 @@ Yes, and Adam here has been a huge help.
 
 Frosting...
 
-How many sugar
+How many sugars
