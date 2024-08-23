@@ -526,4 +526,4 @@ Wow!
 
 Flowers!
 
-This is Blue Leade
+This is Blue Leader
