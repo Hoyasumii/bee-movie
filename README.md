@@ -856,4 +856,4 @@ About work? I don't know.
 
 I want to do my part for The Hive, but I can't do it the way they want.
 
-I know how you feel
+I know how you feel.
