@@ -163,4 +163,4 @@ You decide what you're interested in?
 Well, there's a lot of choices.
 But you only get one.
 Do you ever get bored doing the same job every day?
-Son, let me tell you abou
+Son, let me tell you about
