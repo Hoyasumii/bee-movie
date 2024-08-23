@@ -1350,4 +1350,4 @@ Pinhead.
 
 Check out the new smoker.
 
-Oh, sweet. That's the one you want. The Thomas 3
+Oh, sweet. That's the one you want. The Thomas 30
