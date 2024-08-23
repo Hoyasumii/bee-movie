@@ -670,4 +670,4 @@ Nah, I don't go for that... kind of stuff.
 
 No wonder we shouldn't talk to them. They're out of their minds.
 
-When I leave a job interview, they're flabbergasted, can't believe what 
+When I leave a job interview, they're flabbergasted, can't believe what I
