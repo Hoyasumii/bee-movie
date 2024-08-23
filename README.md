@@ -684,4 +684,4 @@ Stand back. These are winter boots.
 
 Wait!
 
-Don't k
+Don't ki
