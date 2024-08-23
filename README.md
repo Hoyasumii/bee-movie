@@ -1484,4 +1484,4 @@ Always leans forward, pointy shoulders, squinty eyes, very Jewish.
 
 In tennis, you attack at the point of weakness!
 
-It 
+It w
